@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 29 DE DICIEMBRE DE 1994)
+ARTICULO 466 BIS.- La cédula hipotecaria contendrá una relación suscinta de la escritura y concluirá en estos términos: "En virtud de las constancias que preceden, queda sujeta la finca..... de la propiedad de..... a juicio hipotecario, lo que se hace saber a las autoridades y al público, para que no se practiquen en la mencionada finca ningún embargo, toma de posesión, diligencia precautoria o cualquiera otra que entorpezca el curso del presente juicio o viole los derechos en él adquiridos por el C. (aquí el nombre del actor).
