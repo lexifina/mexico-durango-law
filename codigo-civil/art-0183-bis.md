@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 18 DE ABRIL DE 2004)
+ART. 183 BIS.- El cónyuge culpable de acuerdo a la fracción I del artículo anterior perderá su derecho a la parte correspondiente, de dichos bienes a favor del otro cónyuge. En caso de que los bienes dejen de formar parte de la sociedad de bienes, este cónyuge deberá pagar al otro la parte que le corresponda de dichos bienes, así como los daños y perjuicios que se le ocasionen.
