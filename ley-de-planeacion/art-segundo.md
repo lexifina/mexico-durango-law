@@ -6,3 +6,4 @@ Por tanto mando se imprima, publique circule y comuníquese a quienes correspond
 DADO en el PALACIO del PODER EJECUTIVO, en Victoria de Durango Dgo., a los veintinueve días del mes de Diciembre de mil novecientos ochenta y seis.
 EL Gobernador Constitucional del Estado Lic. José Ramírez Gamero.- Rúbrica.
 El Secretario General de Gobierno Lic. Gustavo Rivera Ramos.- Rúbrica.
+N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE LEY:
