@@ -15,3 +15,4 @@ El C. Gobernador Constitucional Substituto del Estado, dispondrá se publique, c
 Dado en el Salón de Sesiones del Congreso del Estado, a los diecinueve días del mes de noviembre de mil novecientos cuarenta y siete.- Antero Carrete, D.P.- Braulio Meraz Nevárez, D.S.I.- Pedro Aguirre D.S.I.- Rúbricas.
 Por tanto mando se imprima, publique, circule y se comunique a quienes corresponda, para su exacta observancia.
 Dado en el Palacio del Poder Ejecutivo del Estado, en Victoria de Durango, Durango, a los trece días del mes de diciembre de mil novecientos cuarenta y siete.- JOSE RAMON VALDEZ.- El Secretario Gral. de Gobierno, Lic. FERNANDO ARENAS.- Rúbricas.
+N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE CODIGO.
