@@ -1,0 +1,1 @@
+ARTÍCULO CUARTO.- Los órganos de gobierno de las entidades paraestatales cuyos instrumentos de creación no requieran modificaciones para adecuarse a lo establecido en la presente Ley, reformarán su estatuto orgánico o reglamento interior en lo conducente, bajo los lineamientos que emita el titular del Ejecutivo.

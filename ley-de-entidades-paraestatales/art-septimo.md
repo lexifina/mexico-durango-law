@@ -1,0 +1,1 @@
+ARTÍCULO SÉPTIMO.- El Gobernador del Estado emitirá el acuerdo de Sectorización de entidades paraestatales dentro de un plazo improrrogable de seis meses contados a partir de la entrada en vigor a la presente Ley.

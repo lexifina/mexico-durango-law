@@ -1,0 +1,1 @@
+ARTÍCULO QUINTO.- El Gobernador del Estado proveerá lo necesario para que comités técnicos de los fideicomisos públicos existentes adecuen su organización y funcionamiento a lo dispuesto en la presente Ley.
