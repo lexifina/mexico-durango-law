@@ -1,5 +1,4 @@
 CODIGO DE PROCEDIMIENTOS CIVILES PARA EL ESTADO DE DURANGO
-(N. DE E. LAS PRESENTES REFORMAS, ADICIONES Y DEROGACIONES AL CODIGO DE PROCEDIMIENTOS CIVILES DEL ESTADO DE DURANGO, CONTENIDAS EN EL DECRETO No. 74, CONTINUARON SU PUBLICACION EN LAS FECHAS: 6, 10, 13, 17 Y 20 DE MARZO DE 1988).
 Código publicado en el Periódico Oficial del Gobierno Constitucional del Estado de Durango, el domingo 22, jueves 26 y domingo 29 de agosto; jueves 2, domingo 5, jueves 9, domingo 12, jueves 16, domingo 19, jueves 23, domingo 26 y jueves 30 de septiembre; domingo 3, jueves 7, domingo 10, jueves 14, domingo 17 y jueves 21 de octubre de 1948.
 EL CIUDADANO JOSE RAMON VALDEZ, Gobernador Constitucional Substituto del Estado Libre y Soberano de Durango, a sus habitantes, Sabed:
 Que la Honorable Legislatura del mismo, se ha servido dirigirme el siguiente:
