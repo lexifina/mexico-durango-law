@@ -1,0 +1,6 @@
+(ADICIONADO, P.O. 3 DE MARZO DE 1988) (F. DE E., P.O. 2 DE JUNIO DE 1988)
+ARTICULO 272-A.- Una vez contestada la demanda y, en su caso, la reconvención, el Juez señalará de inmediato fecha y hora para le (sic) celebración de una audiencia previa y de conciliación dentro de los diez días siguientes, dando vista a la parte que corresponda con las excepciones que se hubieren opuesto en su contra, por el término de tres días.
+(F. DE E., P.O. 2 DE JUNIO DE 1988)
+Si una de las partes no concurre sin causa justificada, el Juez la sancionará con una multa hasta por los montos establecidos en la Fracción II del Artículo 62 de este Código. Si dejaren de concurrir ambas partes sin justificación, el juzgador las sancionará de igual manera. En ambos casos, el Juez procederá a examinar las cuestiones relativas a la depuración del juicio.
+Si asistieran las dos partes el Juez examinará las cuestiones relativas a la legitimación procesal y luego procederá a procurar la conciliación. Si los interesados llegan a un convenio, lo aprobará de plano si procede legalmente y dicho pacto tendrá fuerza de cosa juzgada.
+En caso de desacuerdo entre los litigantes, la audiencia proseguirá y el Juez, que dispondrá de amplias facultades de dirección procesal examinará, en su caso, las excepciones de conexidad, litispendencia y cosa juzgada, con el fin de depurar el procedimiento.
