@@ -5,3 +5,4 @@ EXPEDIDA POR EL XXVI CONGRESO CONSTITUCIONAL DEL MISMO, CON EL CARACTER DE CONST
 DOMINGO ARRIETA, Gobernador Constitucional del Estado Libre y Soberano de Durango, a sus habitantes, sabed:
 Que la Legislatura del mismo ha tenido a bien dirigirme el siguiente decreto número 11:
 El XXVI H. Congreso del Estado de Durango, con el carácter de Constituyente, a nombre del pueblo, decreta la siguiente Constitución Política del mismo Estado.
+LA H. LII LEGISLATURA DEL ESTADO LIBRE Y SOBERANO DE DURANGO, A NOMBRE DEL PUEBLO DECRETA:
