@@ -1,4 +1,4 @@
-LEY ORGANICA DE LA ESCUELA NORMAL DEL ESTADO DE DURANGO
+LEY ORGÁNICA DE LA ESCUELA NORMAL DEL ESTADO DE DURANGO
 Ley publicada en el Periódico Oficial del Gobierno Constitucional del Estado de Durango, el domingo 3 de julio de 1977.
 EL CIUDADANO HECTOR MAYAGOITIA DOMINGUEZ, GOBERNADOR CONSTITUCIONAL DEL ESTADO LIBRE Y SOBERANO DE DURANGO, a sus habitantes, sabed:
 Que la H. Legislatura del mismo se ha servido dirigirme el siguiente:
