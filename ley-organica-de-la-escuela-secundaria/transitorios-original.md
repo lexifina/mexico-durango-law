@@ -6,3 +6,4 @@ LIC. VICENTE GUERRERO ITURBE, D.P.- IGNACIO LOPEZ MORENO, D.S. JOAQUIN SANDOVAL 
 Por tanto mando se imprima, publique, circule y comunique a quiénes corresponda para su exacta observancia.
 DADO EN EL PALACIO DEL PODER EJECUTIVO, en Victoria de Durango, Dgo., a los dos días del mes de julio de mil novecientos sesenta y cinco.
 El Gobernador Constitucional del Estado, ING. ENRIQUE DUPRE CENICEROS.- El Secretario General de Gobierno, LIC. ENRIQUE FERNANDEZ DE CASTRO.- Rúbricas.
+N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE LEY.

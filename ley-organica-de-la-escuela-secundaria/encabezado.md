@@ -1,5 +1,6 @@
 LEY ORGANICA DE LA ESCUELA SECUNDARIA DEL ESTADO "LIC. BENITO JUAREZ"
 Ley publicada en el Periódico Oficial del Gobierno Constitucional del Estado de Durango, el jueves 8 de julio de 1965.
+DECRETO Número 310 con teniendo Ley Orgánica de la Escuela Secundaria Lic. Benito Juárez
 EL CIUDADANO INGENIERO ENRIQUE DUPRE CENICEROS, GOBERNADOR CONSTITUCIONAL DEL ESTADO LIBRE Y SOBERANO DE DURANGO, a sus habitantes, sabed:
 Que la H. Legislatura del mismo se ha servido dirigirme para los efectos del Artículo 81 fracción I y II de la Constitución Política de la Entidad el Decreto Núm. 310 que en sus partes considerativa y sustantiva es como sigue:
 Con fecha 28 de junio del presente año el Ejecutivo del Estado presentó ante esta Legislatura iniciativa de Decreto la cual fué turnada a las Comisiones correspondientes, mismas que emitieron su dictamen con base en los Considerandos en que se apoya y que son como sigue:
