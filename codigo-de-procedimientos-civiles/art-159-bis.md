@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 28 DE JUNIO DE 1998)
+ARTICULO 159 BIS.- En el caso de las sustracciones o retenciones ilícitas internacionales de menores, se estará, cuando sea aplicable, a lo dispuesto por los Tratados Internacionales que se hayan celebrado entre México y otros países.
+Será competente para ordenar la restitución inmediata de un menor de edad cuya residencia habitual se encontrare establecida en el extranjero, y que haya sido objeto de un traslado o retención ilícita en México, en los términos previstos para tal efecto por los Tratados Internacionales celebrados por México, el Juez de lo Familiar del lugar en que éste se encuentre, sin que para ello resuelva sobre la cuestión de fondo del derecho de custodia.
