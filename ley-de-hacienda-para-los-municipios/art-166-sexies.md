@@ -1,2 +1,3 @@
-(ADICIONADO, P.O. 26 DE SEPTIEMBRE DE 2021)
-Artículo 166 sexies. En caso de que existan predios rústicos o urbanos que no estén registrados en la Comisión Federal de Electricidad, éstos pagarán las tarifas que establezcan los municipios en sus leyes de Ingresos, mismas que serán integradas y, debidamente diferenciadas, en el estado de cuenta por concepto de impuesto predial que para tal efecto emite la Tesorería Municipal y, se deberá efectuar el pago de forma anual, independientemente de que para tal efecto se tomen como base las tarifas mensuales correspondientes.
+(REFORMADO, P.O. 7 DE JUNIO DE 2026)
+Artículo 166 sexies. El derecho de alumbrado público se causará mensualmente. Salvo convenio celebrado con la empresa u organismo suministrador de energía eléctrica.
+El pago se hará dentro de los primeros 10 días siguientes al mes en que la empresa u organismo suministrador de energía eléctrica emita el recibo de pago y se realizará a través de la empresa u organismo suministrador de energía eléctrica.
