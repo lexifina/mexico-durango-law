@@ -1,0 +1,4 @@
+TRANSITORIOS
+EL PRESENTE ORDENAMIENTO NO SEÑALA DISPOSICIONES TRANSITORIAS EN RELACION CON LA PUESTA EN VIGENCIA DEL MISMO, EN CONSENCUENCIA, SERAN APLICABLES SUPLETORIAMENTE LAS REGLAS GENERALES DE INTERPRETACION DE LAS NORMAS PREVISTAS EN EL ARTICULO 3 DEL CODIGO CIVIL VIGENTE PARA EL ESTADO DE DURANGO.
+Expedido en la Sala de Sesiones de Cabildo, del Palacio Municipal de Rodeo, Dgo., a los 13 días del mes de junio de 2005. C. M. V. Z. Manuel Villa Silerio Presidente Municipal, c. Ing. Ángel Mesta Torres, Síndico Municipal; C. Ing. Francisco López Meraz, Primer Regidor; C. Ma. Del Carmen Villalba Reyes, Segundo Regidor; C. Lisandro Rivera Alvarado, Tercer Regidor, C. Ing. J. Refugio Pérez Gracia, Cuarto Regidor; C. Lic. Ma. Esther Matilde Martínez Moreno, Quinto Regidor; C. Isidro Arreola Moreno, Sexto Regidor; C. Pedro Morales Rentaría, Séptimo Regidor, y Prof. Victoriano Santillano Samaniego, Secretario del H. Ayuntamiento.
+FIRMAS
