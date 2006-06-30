@@ -8,3 +8,4 @@ DIP. JOSÉ MANUEL DIAZ MEDINA, PRESIDENTE.- DIP. RAUL MUÑOZ DE LEÓN, SECRETARI
 Por tanto mando se imprima, publique, circule y comuníquese a quienes corresponda para su exacta observancia.
 DADO EN EL PALACIO DEL PODER EJECUTIVO, en Victoria de Durango, Dgo., a los quince días del mes de Diciembre del año de mil novecientos noventa y ocho.
 EL GOBERNADOR CONSTITUCIONAL DEL ESTADO. LIC. ANGEL SERGIO GUERRERO MIER.- EL SECRETARIO GENERAL DE GOBIERNO. LIC. JESUS FLORES LOPEZ.- Rúbricas.
+N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE LEY.
