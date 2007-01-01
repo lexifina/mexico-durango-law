@@ -1,0 +1,2 @@
+Artículo Tercero.- Se derogan todas las disposiciones que contravengan lo previsto en la presente.
+Ley. Artículo Cuarto.- Los ayuntamientos deberán actualizar de forma constante, su registro catastral, para considerar dentro de él, y al ejercicio fiscal del año siguiente las construcciones que se vayan adhiriendo a los predios, independientemente de que éstos sean urbanos o rurales, en relación con la expedición de permisos por construcción, reconstrucción, reparación y demoliciones, contenida en la Sección Cuarta del Capítulo II, de esta Ley.

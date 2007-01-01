@@ -1,0 +1,10 @@
+LEY DE HACIENDA PARA LOS MUNICIPIOS DEL ESTADO DE DURANGO
+Ley publicada en el Periódico Oficial del Estado de Durango, el jueves 20 de julio de 2006.
+EL CIUDADANO CONTADOR PÚBLICO ISMAEL ALFREDO HERNÁNDEZ DERAS, GOBERNADOR CONSTITUCIONAL DEL ESTADO LIBRE Y SOBERANO DE DURANGO, A SUS HABITANTES, SABED:
+QUE LA H. LEGISLATURA DEL MISMO SE HA SERVIDO DIRIGIRME EL SIGUIENTE:
+Con fecha 22 de octubre del año 2002, 29 de octubre de 2004 y 23 de mayo de 2005, los CC. Diputados: Rogelio Ayala Arzola, Adrián Valles Martínez, Juan Manuel Félix León, Gabino Rutiaga Fierro, José María Alcantar Chávez, Octaviano Rendón Arce y Yolanda de la Torre Valdez, integrantes del Grupo Parlamentario del Partido Revolucionario Institucional de la LXII Legislatura Local, de igual forma el C. Lic. Octaviano Rendón Arce, Presidente Constitucional del R. Ayuntamiento de Gómez Palacio, Dgo; así mismo los CC. Dip. Jesús Alvarado Cabrales, Lorenzo Martínez Delgadillo, David Avitia Torres, Lilia Velia Carranza García y Arturo Yáñez Cuellar, integrantes de la LXIII Legislatura Local, presentaron Iniciativas de Decreto que contienen LEY DE HACIENDA DE LOS MUNICIPIOS DEL ESTADO DE DURANGO; REFORMA A LA FRACCIÓN IV DEL ARTÍCULO 67 DE LA LEY DE HACIENDA DE LOS MUNICIPIOS DEL ESTADO DE DURANGO, Y LEY DE HACIENDA PARA LOS MUNICIPIOS DEL ESTADO DE DURANGO; mismas que fueron turnadas a la Comisión de Hacienda, Presupuesto y Cuenta Pública, integrada por los CC. Diputados: José Antonio Ramírez Guzmán, Juan Quiñónez Ruiz, David Avitia Torres, Lilia Velia Carranza García y Arturo Yáñez Cuellar; Presidente, Secretario y Vocales respectivamente los cuales emitieron su dictamen favorable con base en la siguiente:
+.
+Con base en la anterior exposición de motivos, esta H. LXIII Legislatura del Estado, expide el siguiente:
+D E C R E T O No. 237
+LA HONORABLE LXIII LEGISLATURA DEL ESTADO LIBRE Y SOBERANO DE DURANGO, CON LAS FACULTADES QUE LE CONFIERE EL ARTÍCULO 55 DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO LIBRE Y SOBERANO DE DURANGO, A NOMBRE DEL PUEBLO DECRETA:
+LEY DE HACIENDA PARA LOS MUNICIPIOS DEL ESTADO DE DURANGO

@@ -1,0 +1,1 @@
+Artículo Sexto- Los Ayuntamientos deberán actualizar las tarifas y conceptos de agua potable y alcantarillado en sus Leyes de Ingresos respectivas de conformidad con las disposiciones de la Ley de Agua para el Estado de Durango.

@@ -1,0 +1,1 @@
+Artículo Quinto.- Los Ayuntamientos dentro del plazo de un año a la entrada en vigor del presente ordenamiento deberán contar un registro de las personas que realicen actividades Comerciales y oficios ambulantes, en la vía pública, afín de que se cuente con un padrón que haga efectivo el cobro del Impuesto sobre actividades comerciales y oficios ambulantes.
