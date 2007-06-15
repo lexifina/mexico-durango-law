@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 14 DE JUNIO DE 2007)
+Artículo 163 BIS.- La Comisión del Agua del Estado de Durango, en conjunto con la Secretaría de Educación del Estado, desarrollará un programa que permita implantar en el sistema estatal de educación, la materia de cultura y uso eficiente del agua en el proceso educativo de educción básica, con la premisa de que el agua es un recurso finito y vulnerable, esencial para sostener la vida, el desarrollo y el medio ambiente de los ciudadanos del Estado.
