@@ -1,5 +1,5 @@
-(REFORMADO PRIMER PARRAFO, P.O. 17 DE JULIO DE 1994)
-ARTICULO 137 BIS.- La caducidad de la instancia operará de pleno derecho cualquiera que sea el estado del juicio desde el emplazamiento hasta antes de que se concluya la audiencia de pruebas, alegatos y sentencia si transcurridos 90 días naturales contados a partir de la notificación de la última determinación judicial, no hubiere promoción de cualquiera de las partes. Los efectos y formas de su declaración se sujetarán a las siguientes normas:
+(REFORMADO PRIMER PARRAFO, P.O. 2 DE AGOSTO DE 2007)
+ARTICULO 137 BIS.- La caducidad de la instancia operará de pleno derecho cualquiera que sea el estado del juicio desde el emplazamiento hasta antes de que se concluya la audiencia de pruebas, alegatos y sentencia si transcurridos 90 días naturales contados a partir de la notificación de la última determinación judicial, no hubiere promoción de cualquiera de las partes; salvo que el Juez las haya citado para oír sentencia, entonces no operará la caducidad de la instancia. Los efectos y formas de su declaración se sujetarán a las siguientes normas:
 (ADICIONADA, P.O. 17 DE ENERO DE 1982)(F. DE E., P.O. 4 DE NOVIEMBRE DE 1982)
 I.- La caducidad de la instancia es de orden público, y irrenunciable y no puede ser materia de convenios entre las partes. El Juez la declarará de oficio o a petición de cualquiera de las partes cuando concurran las circunstancias a que se refiere el presente artículo.
 (ADICIONADA, P.O. 17 DE ENERO DE 1982)
