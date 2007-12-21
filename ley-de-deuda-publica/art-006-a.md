@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 20 DE DICIEMBRE DE 2007)
+ARTÍCULO 6-A. Los créditos de mediano plazo y las líneas de crédito revolvente no podrán ser reestructurados o refinanciados. La contratación, administración y evolución de su situación serán reportados al Congreso en los informes preliminares mensuales o bimestrales de cuenta pública que las entidades remitan a la Entidad de Auditoria Superior del Estado.
