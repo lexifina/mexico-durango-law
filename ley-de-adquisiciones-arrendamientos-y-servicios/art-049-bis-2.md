@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 14 DE DICIEMBRE DE 2008)
+ARTÍCULO 49 BIS 2.- Las Dependencias, Entidades y los Ayuntamientos, según corresponda, podrán intervenir temporalmente o dar por terminado anticipadamente el Contrato de PIPS cuando concurran razones de interés general, se presente un caso fortuito o una fuerza mayor, o bien, cuando por causas justificadas se extinga la necesidad de requerir los servicios originalmente contratados, y se demuestre que de continuar con el cumplimiento de las obligaciones pactadas, se ocasionaría algún daño o perjuicio al Estado.
