@@ -14,4 +14,3 @@ Siendo pues una realidad que estas nuevas vías de solución deben ocupar un esp
 Con base en los anteriores Considerandos, esta H. LXIII Legislatura del Estado, expide el siguiente:
 DECRETO No. 112
 LA HONORABLE SEXAGÉSIMA TERCERA LEGISLATURA DEL ESTADO LIBRE Y SOBERANO DE DURANGO, EN USO DE LAS FACULTADES QUE LE CONFIERE EL ARTÍCULO 55 DE LA CONSTITUCIÓN POLÍTICA LOCAL, A NOMBRE DEL PUEBLO, D E C R E T A:
-LEY DE JUSTICIA ALTERNATIVA DEL ESTADO DE DURANGO
