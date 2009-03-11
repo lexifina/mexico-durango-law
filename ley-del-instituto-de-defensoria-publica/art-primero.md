@@ -1,0 +1,2 @@
+ARTÍCULO PRIMERO.- La presente ley entrará en vigor una vez que se publiquen en el Periódico Oficial del Gobierno Constitucional del Estado de Durango e inicien su vigencia, las reformas que en la materia se efectúen a la Constitución Política del Estado Libre y Soberano de Durango.
+Hasta que se de cumplimiento a lo dispuesto en el párrafo anterior, se abrogará la Ley del Instituto de Defensoría Pública del Estado, contenida en el Decreto No. 403, publicada en el Periódico Oficial del Gobierno Constitucional del Estado de Durango No. 42, de fecha 27 de mayo del 2001.
