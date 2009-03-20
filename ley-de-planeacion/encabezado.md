@@ -1,4 +1,4 @@
-LEY DE PLANEACION DEL ESTADO DE DURANGO
+LEY DE PLANEACIÓN DEL ESTADO DE DURANGO
 Ley publicada en el Periódico Oficial del Estado de Durango, el domingo 1 de febrero de 1987.
 EL CIUDADANO LICENCIADO JOSE RAMIREZ GAMERO, GOBERNADOR CONSTITUCIONAL del ESTADO LIBRE y SOBERANO de DURANGO, a sus habitantes, s a b e d :
 Que la H. Legislatura del mismo se ha servido dirigirme el siguiente:
