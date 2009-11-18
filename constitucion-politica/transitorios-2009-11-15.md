@@ -1,0 +1,3 @@
+P.O. 15 DE NOVIEMBRE DE 2009.
+PRIMERO. El presente decreto entrará en vigor una vez que se publique en el Periódico Oficial del Gobierno Constitucional del Estado de Durango, la Declaratoria que emita el Congreso del Estado o la Comisión Permanente a solicitud expresa del Tribunal Superior de Justicia del Estado, respecto de la vigencia del Código Procesal Penal del Estado de Durango, aprobado mediante Decreto No. 232, y publicado en el Periódico Oficial del Gobierno Constitucional del Estado de Durango, No. 11 de fecha 5 de diciembre de 2008.
+SEGUNDO. Se derogan todas las disposiciones legales que se opongan al contenido del presente decreto.
