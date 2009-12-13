@@ -1,3 +1,5 @@
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VEASE ARTICULO PRIMERO TRANSITORIO DEL DECRETO QUE MODIFICA LA LEY.
+(REFORMADO, P.O. 10 DE DICIEMBRE DE 2009)
 ARTÍCULO TERCERO.- En tanto entre en vigor la presente Ley, el Director General, el Subdirector y el Coordinador de Defensores Públicos y Asesores Jurídicos, tendrán la misma competencia prevista en la Ley del Instituto de Defensoría Pública del Estado de Durango.
 A la entrada en vigor de la presente Ley, la permanencia y atribuciones de los servidores públicos del Instituto de Defensoría Pública, se ajustarán a las siguientes prevenciones:
 I. El Director General, permanecerá en el cargo por el período que haya sido designado o ratificado, según sea el caso;

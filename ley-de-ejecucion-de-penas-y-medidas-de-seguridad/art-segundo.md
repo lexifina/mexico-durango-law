@@ -1,3 +1,7 @@
-ARTÍCULO SEGUNDO. Abrogación y derogación Tácita de Preceptos Incompatibles.
-Se abroga la Ley de Ejecución de Penas Privativas y Restrictivas de Libertad del Estado de Durango, promulgada el nueve de junio de mil novecientos setenta y uno.
-Quedan derogados, en los términos señalados en los textos precedentes, los preceptos de la legislación de la Entidad que se opongan a las disposiciones de este ordenamiento.
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VEASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA LA LEY.
+(REFORMADO, P.O. 10 DE DICIEMBRE DE 2009)
+ARTÍCULO SEGUNDO. Abrogación y derogación.
+La Ley de Ejecución de Penas Privativas y Restrictivas de Libertad del Estado de Durango, promulgada el nueve de junio de mil novecientos setenta y uno y sus reformas posteriores, se abrogará en la fecha y ámbito espacial y temporal de validez en que determine la declaratoria a que alude el artículo primero transitorio del presente decreto, conforme a las siguientes prevenciones:
+I. En el Distrito Judicial o Región, según sea el caso, que tenga como cabecera la Ciudad de Victoria de Durango, Dgo, la ley referida con antelación, seguirá rigiendo, en los procedimientos por delitos cometidos con anterioridad a la entrada en vigor de la presente, y quedará abrogada cuando el último de los procedimientos tramitados conforme a la primera, haya causado ejecutoria;
+II. En el resto de los Distritos Judiciales o Regiones, sus disposiciones seguirán aplicándose hasta la fecha y en los términos que contengan las declaratorias respectivas que emitirán el Congreso del Estado o la Comisión Permanente a solicitud expresa del Tribunal Superior de Justicia del Estado, y que se publicarán en el Periódico Oficial del Gobierno Constitucional del Estado de Durango.
+Se derogan todas las disposiciones que se opongan al presente decreto.

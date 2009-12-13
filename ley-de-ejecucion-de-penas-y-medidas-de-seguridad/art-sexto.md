@@ -1,3 +1,5 @@
+N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VEASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA LA LEY.
+(REFORMADO, P.O. 10 DE DICIEMBRE DE 2009)
 ARTÍCULO SEXTO. Para la implementación de localizadores electrónicos, se requerirá que en el Presupuesto de Egresos del Estado de Durango, se destinen las partidas presupuestales necesarias, hasta en tanto, queda suspendida la ejecución de tal medida.
 El Ciudadano Gobernador Constitucional del Estado dispondrá se publique, circule y observe.
 Dado en el Salón de Sesiones del Honorable Congreso del Estado, en Victoria de Durango, Dgo., a los (14) catorce días del mes de agosto del año (2009) dos mil nueve.
@@ -13,3 +15,4 @@ EL C. GOBERNADOR CONSTITUCIONAL DEL ESTADO
 C.P. ISMAEL ALFREDO HERNANDEZ DERAS
 EL SECRETARIO GENERAL DE GOBIERNO
 LIC. OLIVERIO REZA CUELLAR
+N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.
