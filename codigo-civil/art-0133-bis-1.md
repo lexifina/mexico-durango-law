@@ -1,5 +1,4 @@
-(ADICIONADO, P.O. 3 DE JUNIO DE 2010)
-ART. 133 BIS 1.- Si de la documentación acompañada a una solicitud de rectificación aparecieren otros errores u omisiones, que no fueren señalados en dicha solicitud, el Sub-Director Jurídico del Registro Civil los tomará en cuenta de oficio al dictar la resolución que corresponda.
+ART. 133 Bis 1.- (DEROGADO, P.O. 7 DE ABRIL DE 2011)
 TITULO QUINTO.
 Del matrimonio.
 CAPITULO I.

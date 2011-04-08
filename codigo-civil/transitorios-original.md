@@ -14,4 +14,4 @@ Antero Carrete. D. P.- José R. Sariñana. D. S. Carlos Torres Ch. D. S.
 Por tanto mando se imprima, publique, circule y se comunique a quienes corresponda, para su exacta observancia.
 Dado en el Palacio del Poder Ejecutivo del Estado en Victoria de Durango, Dgo., a los trece días del mes de diciembre de mil novecientos cuarenta y siete.
 José Ramón Valdez.- El Secretario Gral. de Gobierno, Lic. Fernando Arenas.
-N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE CODIGO.
+N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE CÓDIGO.
