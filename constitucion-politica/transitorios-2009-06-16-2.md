@@ -1,6 +1,6 @@
 P.O. 16 DE JUNIO DE 2009.
-DECRETO NO. 287, POR EL QUE SE REFORMAN Y ADICIONAN LOS ARTICULOS 55 Y 58 DE LA CONSTITUCION POLITICA DEL ESTADO LIBRE Y SOBERANO DEL ESTADO DE DURANGO.
-DEBIDO A SU IMPORTANCIA, SE TRANSCRIBEN LOS ARTICULOS DEL DECRETO QUE SE RELACIONAN CON LA CONSITUCION
+DECRETO NO. 287, POR EL QUE SE REFORMAN Y ADICIONAN LOS ARTÍCULOS 55 Y 58 DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO LIBRE Y SOBERANO DEL ESTADO DE DURANGO.
+DEBIDO A SU IMPORTANCIA, SE TRANSCRIBEN LOS ARTÍCULOS DEL DECRETO QUE SE RELACIONAN CON LA CONSTITUCIÓN
 .
 Artículo Segundo.- Queda sin efectos el periodo comprendido del 25 de octubre de 2007 al 30 de marzo de 2010, por el cual fue designado el C. C.P. Luis Arturo Villarreal Morales como Titular de la Entidad de Auditoría Superior del Estado, contenido en el Acuerdo de la Sexagésima Cuarta Legislatura del H. Congreso del Estado de Durango, celebrado en su Sesión Plenaria, de fecha 24 de octubre de 2007.
 Artículo Tercero.- Se amplía el mandató del C. C.P. Luis Arturo Villarreal Morales, para que funja como Titular de la Entidad de Auditoría Superior del Estado, por el periodo comprendido del 25 de octubre de 2007 al 30 de marzo de 2013, mismo que se entenderá como un primer periodo de ejercicio en el cargo para el cual fue designado el 24 de octubre de 2007.

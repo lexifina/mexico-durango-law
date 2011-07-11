@@ -1,6 +1,6 @@
 P.O. 16 DE JUNIO DE 2009.
-DECRETO NO. 286, POR EL QUE SE REFORMAN, ADICIONAN Y DEROGAN DIVERSOS ARTICULOS DE LA CONSTITUCION POLITICA DEL ESTADO LIBRE Y SOBERANO DEL ESTADO DE DURANGO.
-DEBIDO A SU IMPORTANCIA, SE TRANSCRIBEN LOS ARTICULOS DEL DECRETO QUE SE RELACIONAN CON LA CONSITUCION
+DECRETO NO. 286, POR EL QUE SE REFORMAN, ADICIONAN Y DEROGAN DIVERSOS ARTÍCULOS DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO LIBRE Y SOBERANO DEL ESTADO DE DURANGO.
+DEBIDO A SU IMPORTANCIA, SE TRANSCRIBEN LOS ARTÍCULOS DEL DECRETO QUE SE RELACIONAN CON LA CONSTITUCIÓN
 .
 Artículo Segundo.- Queda sin efectos el periodo de cuatro años por el cual fueron designados Magistrados Electorales del Tribunal Estatal Electoral del Poder Judicial del Estado, los Ciudadanos Licenciados María Hortensia Alvarado Cisneros, Roberto Herrera Hernández y Francisco Orrante Ontiveros, mediante Acuerdo de la LXIII Legislatura de fecha 9 de mayo de 2007 publicado en el Periódico Oficial del Gobierno Constitucional del Estado de Durango N° 38, de fecha 13 de mayo del 2007.
 Artículo Tercero.- Se reforma el Artículo Primero del Acuerdo aprobado por la H. LXIII Legislatura por el cual son designados magistrados del Tribunal Estatal Electoral del Poder Judicial del Estado de Durango, por el periodo comprendido del 11 de mayo del 2007 al 10 de mayo de 2011, a los Ciudadanos Licenciados María Hortensia Alvarado Cisneros, Roberto Herrera Hernández y Francisco Orrante Ontiveros, de fecha 9 de mayo de 2007 publicado en el Periódico Oficial del Gobierno Constitucional del Estado de Durango N° 38, de fecha 13 de mayo del 2007 para quedar como sigue:
