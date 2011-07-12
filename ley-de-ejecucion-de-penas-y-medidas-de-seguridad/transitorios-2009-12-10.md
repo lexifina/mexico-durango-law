@@ -1,9 +1,9 @@
 P.O. 10 DE DICIEMBRE DE 2009.
-DECRETO NUMERO 416, POR EL QUE SE REFORMAN Y ADICIONAN DIVERSOS ARTICULOS DE LA LEY DE EJECUCION DE PENAS Y MEDIDAS DE SEGURIDAD DEL ESTADO DE DURANGO.
+DECRETO NÚMERO 416, POR EL QUE SE REFORMAN Y ADICIONAN DIVERSOS ARTÍCULOS DE LA LEY DE EJECUCIÓN DE PENAS Y MEDIDAS DE SEGURIDAD DEL ESTADO DE DURANGO.
 Artículo Primero.- El presente decreto se publicará en el Periódico Oficial del Gobierno Constitucional del Estado de Durango.
 Artículo Segundo.- El presente decreto, entrará en vigor en el ámbito espacial y temporal de validez en la fecha que determine la Declaratoria que emita el Congreso del Estado o la Comisión Permanente a solicitud expresa del Tribunal Superior de Justicia del Estado.
 Artículo Tercero.- Se derogan todas las disposiciones que se opongan al presente decreto.
-SE TRANSCRIBE EL ARTICULO DEL DECRETO QUE MODIFICA LA LEY, QUE SE RELACIONA CON EL ORDENAMIENTO.
+SE TRANSCRIBE EL ARTÍCULO DEL DECRETO QUE MODIFICA LA LEY, QUE SE RELACIONA CON EL ORDENAMIENTO.
 Artículo Décimo.- Las reformas y adiciones efectuadas en las secciones primera y segunda del Capítulo Tercero contenidas en el presente Decreto relacionadas con el Consejo Estatal de Seguridad Pública y el Secretariado Ejecutivo entrarán en vigor el día siguiente de la fecha de su publicación en el Periódico Oficial del Gobierno Constitucional del Estado de Durango.
 Se derogan todas las disposiciones que se opongan a las relacionadas con el Consejo Estatal de Seguridad Pública y el Secretariado Ejecutivo, citadas con anterioridad.
 En su aplicación se observarán las siguientes prevenciones:

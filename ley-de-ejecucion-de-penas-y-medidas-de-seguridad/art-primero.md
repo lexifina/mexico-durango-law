@@ -1,4 +1,4 @@
-N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VEASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA LA LEY.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE EL ARTÍCULO ÚNICO DE LA DECLARATORIA DE ENTRADA EN VIGOR EN EL ÁMBITO ESPACIAL Y TEMPORAL DE VALIDEZ DE LOS DISTRITOS JUDICIALES DEL SEGUNDO AL DÉCIMO TERCERO DEL ESTADO DE DURANGO, PUBLICADA EN EL P.O. DE 12 DE JULIO DE 2011, ASÍ COMO EL TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL ORDENAMIENTO.
 (REFORMADO, P.O. 10 DE DICIEMBRE DE 2009)
 ARTÍCULO PRIMERO. Entrada en vigor.
 El presente decreto entrará en vigor en las fechas y ámbitos espacial y temporal de validez que determinen las Declaratorias que emita el Congreso del Estado o la Comisión Permanente a solicitud expresa del Tribunal Superior de Justicia del Estado, respecto de la vigencia del Código Procesal Penal del Estado de Durango, aprobado mediante Decreto No. 232, y publicado en el Periódico Oficial del Gobierno Constitucional del Estado de Durango, No. 11 de fecha 5 de diciembre de 2008.

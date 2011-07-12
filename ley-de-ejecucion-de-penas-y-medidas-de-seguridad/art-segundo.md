@@ -1,4 +1,4 @@
-N. DE E. EN RELACION CON LA ENTRADA EN VIGOR DEL PRESENTE ARTICULO, VEASE TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA LA LEY.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE EL ARTÍCULO ÚNICO DE LA DECLARATORIA DE ENTRADA EN VIGOR EN EL ÁMBITO ESPACIAL Y TEMPORAL DE VALIDEZ DE LOS DISTRITOS JUDICIALES DEL SEGUNDO AL DÉCIMO TERCERO DEL ESTADO DE DURANGO, PUBLICADA EN EL P.O. DE 12 DE JULIO DE 2011, ASÍ COMO EL TRANSITORIO SEGUNDO DEL DECRETO QUE MODIFICA EL ORDENAMIENTO.
 (REFORMADO, P.O. 10 DE DICIEMBRE DE 2009)
 ARTÍCULO SEGUNDO. Abrogación y derogación.
 La Ley de Ejecución de Penas Privativas y Restrictivas de Libertad del Estado de Durango, promulgada el nueve de junio de mil novecientos setenta y uno y sus reformas posteriores, se abrogará en la fecha y ámbito espacial y temporal de validez en que determine la declaratoria a que alude el artículo primero transitorio del presente decreto, conforme a las siguientes prevenciones:
