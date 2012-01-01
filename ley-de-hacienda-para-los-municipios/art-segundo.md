@@ -1,1 +1,2 @@
+(DEROGADO POR ARTÍCULO DÉCIMO SEGUNDO DE LA LEY DE INGRESOS PARA EL EJERCICIO FISCAL 2012 DEL MUNICIPIO DE GÓMEZ PALACIO, DURANGO, CON EFECTOS EXCLUSIVOS AL PROPIO MUNICIPIO, P.O. 22 DE DICIEMBRE DE 2011)
 Artículo Segundo.- Se abroga la Ley de Hacienda de los Municipios para el Estado de Durango expedida mediante decreto No. 128, y publicada en el Periódico Oficial 19 bis, de fecha 6 de marzo de 1988, así como sus subsecuentes reformas; exceptuando lo contenido en el capítulo XVIII del Título III denominado por Servicio Público de Iluminación.
