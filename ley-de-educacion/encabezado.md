@@ -1,4 +1,4 @@
-LEY DE EDUCACION DEL ESTADO DE DURANGO
+LEY DE EDUCACIÓN DEL ESTADO DE DURANGO
 Ley publicada en el Periódico Oficial del Estado de Durango, el jueves 29 de junio de 1995.
 EL CIUDADANO LICENCIADO MAXIMILIANO SILERIO ESPARZA, GOBERNADOR CONSTITUCIONAL DEL ESTADO LIBRE Y SOBERANO DE DURANGO, a sus habitantes, s a b e d:
 Con fechas 17 de Mayo de 1994 y 29 de Mayo de 1995, presentaron los integrantes de la Fracción Parlamentaria del Partido Acción Nacional, miembros de esta Legislatura y el C. Gobernador Constitucional del Estado, Iniciativas de Decreto, que contienen ambas Ley de Educación del Estado de Durango, mismas que fueron turnadas a la Comisión de Educación, Ciencia, Arte y Tecnología, integrada por los CC. Diputados Jesus Payan Alonso, Ricardo Sanchez Soto e Isidro Barraza Soto; Presidente, Secretario y Vocal respectivamente; mismos que emitieron su dictamen favorable con base en los siguientes:
