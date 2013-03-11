@@ -5,4 +5,3 @@ II. A la víctima se le hayan inferido lesiones infamantes, degradantes o mutila
 III. Existan datos que establezcan que se han cometido amenazas, acoso, violencia o lesiones del sujeto activo en contra de la víctima;
 IV. El cuerpo de la víctima sea expuesto, depositado o arrojado en un lugar público; o
 V. La víctima haya sido incomunicada sin ánimo de obtención de lucro, cualquiera que sea el tiempo previo a su fallecimiento.
-No comete feminicidio quien, en ejercicio de sus funciones como autoridad de la fuerza pública del Estado, prive de la vida a una mujer que se encuentra cometiendo delito en flagrancia.

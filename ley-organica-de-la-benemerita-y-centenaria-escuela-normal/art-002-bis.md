@@ -1,2 +1,1 @@
-(ADICIONADO, P.O. 6 DE SEPTIEMBRE DE 1987)
-ARTICULO 2o. Bis.- En la Escuela Normal del Estado de Durango, se establece el Bachillerato Pedagógico, la carrera de Profesora de Educación Preescolar, las Licenciaturas en Educación Primaria y Educación Preescolar; así como Licenciaturas en Educación Especial, Postgrados y demás carreras cortas de tipo profesional o sub-profesional que de acuerdo a las necesidades en educación, decrete el Ejecutivo del Estado.
+ARTICULO 2 BIS.- (DEROGADO, P.O. 10 DE MARZO DE 2013)
