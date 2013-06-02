@@ -10,4 +10,4 @@ Por tanto mando se imprima, publique, circule y comuníquese a quienes correspon
 DADO en el PALACIO del PODER EJECUTIVO, en Victoria de Durango, Dgo., a los quince días del mes de Julio del año de mil novecientos ochenta.
 El Gobernador Constitucional Substituto del Estado Dr. SALVADOR GAMIZ FERNANDEZ.- Rúbrica.
 El Secretario General de Gobierno Lic. CARLOS GALINDO MARTINEZ.- Rúbrica.
-N. DE E. A CONTINUACION SE TRANSCRIBEN LOS ARTICULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE LEY.
+N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS A LA PRESENTE LEY.
