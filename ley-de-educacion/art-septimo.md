@@ -1,1 +1,1 @@
-ARTICULO SEPTIMO.- En cuanto a los demás organismos públicos descentralizados dependientes del Gobierno del Estado de Durango, cuyas funciones se refieren a la prestación de servicios educativos en cualquiera de sus tipos y modalidades, continuarán regulando las relaciones laborales con los trabajadores a su servicio, con base en las Leyes o Decretos que les dieron origen y en los Contratos o Convenios pactados con las instituciones nacionales o locales de seguridad social.
+ARTICULO SEPTIMO.- (DEROGADO, P.O. 19 DE DICIEMBRE DE 2013)
