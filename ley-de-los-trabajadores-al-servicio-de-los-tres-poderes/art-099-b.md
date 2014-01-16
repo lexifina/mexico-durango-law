@@ -1,0 +1,7 @@
+(ADICIONADO, P.O. 15 DE ENERO DE 2014)
+Artículo 99o B.- No se considerarán riesgos del trabajo:
+I.- Si el accidente ocurre encontrándose el Trabajador en estado de embriaguez;
+II.- Si el accidente ocurre encontrándose el Trabajador bajo la acción de algún narcótico o droga enervante, salvo que exista prescripción médica y que el Trabajador hubiese puesto el hecho en conocimiento del jefe inmediato, presentándole la prescripción suscrita por el médico;
+III.- Si el Trabajador se ocasiona intencionalmente una lesión por sí o de acuerdo con otra persona;
+IV.- Los que sean resultado de un intento de suicidio o efecto de una riña en que hubiere participado el Trabajador u originados por algún delito cometido por éste, y
+V.- Las enfermedades o lesiones que presente el Trabajador consideradas como crónico degenerativas o congénitas y no tengan relación con el riesgo de trabajo, aun cuando el Trabajador ignore tenerlas o se haya percatado de la existencia de éstas, al sufrir un riesgo del trabajo.
