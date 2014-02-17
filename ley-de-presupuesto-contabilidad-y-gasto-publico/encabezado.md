@@ -1,4 +1,4 @@
-LEY DE PRESUPUESTO, CONTABILIDAD Y GASTO PUBLICO DEL ESTADO
+LEY DE PRESUPUESTO, CONTABILIDAD Y GASTO PÚBLICO DEL ESTADO
 Ley publicada en Periódico Oficial del Gobierno Constitucional del Estado de Durango, el 14 de Agosto de 1980.
 EL C. DR. SALVADOR GAMIZ FERNANDEZ GOBERNADOR CONSTITUCIONAL SUBSTITUTO del ESTADO LIBRE y SOBERANO de DURANGO, a sus habitantes, sabed:
 Que la H. Legislatura del mismo se ha servido dirigirme el siguiente:
