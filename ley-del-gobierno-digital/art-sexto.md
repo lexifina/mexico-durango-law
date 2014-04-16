@@ -1,0 +1,1 @@
+ARTÍCULO SEXTO.- Dentro de los tres meses siguientes a la publicación del reglamento de esta ley, los sujetos de la presente ley deberán transformar sus Portales Informativos actuales en Portales Transaccionales, así como disponer de una versión digital, en sus portales Transaccionales, de todos sus trámites y servicios presenciales actuales.

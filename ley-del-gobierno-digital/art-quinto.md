@@ -1,0 +1,1 @@
+ARTÍCULO QUINTO.- Dentro de los treinta días naturales siguientes a la entrada en vigor del presente ordenamiento, se deberá instalar la Comisión Estatal de Gobierno Digital por convocatoria del Presidente de la misma.

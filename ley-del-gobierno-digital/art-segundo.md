@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO.- Las disposiciones legales y administrativas expedidas sobre esta materia, vigentes al momento de la publicación de esta ley, seguirán vigentes en lo que no se opongan a ésta, hasta en tanto se expidan las que deban sustituirlas.

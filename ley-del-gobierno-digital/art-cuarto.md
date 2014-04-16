@@ -1,0 +1,1 @@
+ARTÍCULO CUARTO.- Las facultades que de conformidad con la presente ley deban ejercer los sujetos de la presente ley, las llevarán a cabo a través de los órganos que correspondan, de conformidad con el ámbito de competencia respectivo.
