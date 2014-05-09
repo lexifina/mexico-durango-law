@@ -1,0 +1,3 @@
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE ARTÍCULO SEGUNDO TRANSITORIO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+(ADICIONADO, P.O. 6 DE MAYO DE 2014)
+ART. 2769 BIS.- En materia penal, cuando el Juez imponga una garantía económica y la misma se constituya mediante prenda, ésta sólo se admitirá cuando se trate de muebles no perecederos y de fácil depósito, debiendo exhibir el constituyente la factura original solicitando su ratificación o promover la evaluación pericial del objeto, para demostrar que éste posee un valor dos veces mayor al monto de la garantía económica impuesta.
