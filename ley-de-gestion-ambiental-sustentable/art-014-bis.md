@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 6 DE JULIO DE 2014)
+ARTÍCULO 14 BIS. Las Dependencias de la Administración Pública Estatal y Municipales, el Poder Legislativo, el Poder Judicial y los órganos constitucionales autónomos, procurarán contar con sistema de celdas solares en sus inmuebles, el cual se podrá establecer de manera progresiva hasta que el total del consumo de energía eléctrica sea a través de dicho sistema, de acuerdo con la posibilidad física, técnica y financiera que resulte conveniente para cada caso.
