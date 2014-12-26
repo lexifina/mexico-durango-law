@@ -1,0 +1,15 @@
+ARTÍCULO CUARTO.- Se derogan todas las disposiciones que se opongan al presente Decreto.
+El Ciudadano Gobernador Constitucional del Estado sancionará, promulgará y dispondrá se publique, circule y observe.
+Dado en el Salón de Sesiones del Honorable Congreso del Estado, en Victoria de Durango, Dgo., a los (10) diez días del mes de Diciembre de (2014) dos mil catorce.
+DIP. AGUSTÍN BERNARDO BONILLA SAUCEDO
+PRESIDENTE.
+DIP. PABLO CESAR AGUILAR PALACIO
+SECRETARIO.
+DIP. ISRAEL SOTO PEÑA
+SECRETARIO.
+POR TANTO MANDO, SE IMPRIMA, PUBLIQUE, CIRCULE Y COMUNÍQUESE A QUIENES CORRESPONDA PARA SU EXACTA OBSERVANCIA.
+DADO EN EL PALACIO DEL PODER EJECUTIVO, EN VICTORIA DE DURANGO, DGO., A LOS (16) DIECISEIS DIAS DEL MES DE DICIEMBRE DEL AÑO (2014) DOS MIL CATORCE.
+EL C. GOBERNADOR CONSTITUCIONAL DEL ESTADO
+C.P. JORGE HERRERA CALDERA
+EL SECRETARIO GENERAL DE GOBIERNO
+LIC. MIGUEL ANGEL OLVERA ESCALERA

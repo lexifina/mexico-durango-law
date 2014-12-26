@@ -1,0 +1,1 @@
+ARTICULO TERCERO.- Los recursos humanos, presupuestales, financieros y materiales del Instituto de la Mujer Duranguense, pasaran a formar parte del Instituto Estatal de las Mujeres; sin menoscabo de los derechos laborales.
