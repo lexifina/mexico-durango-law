@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 28 DE DICIEMBRE DE 2014)
+ART. 406 BIS.- La alienación parental es la manipulación que un progenitor o un familiar realiza hacia un menor de edad, mediante la desaprobación o la crítica, con el objeto de denigrar al otro progenitor o a sus familiares y con el propósito de producir en el menor, rechazo, rencor, odio o desprecio hacia alguno de éstos, con el propósito de inducir al menor a rechazar la convivencia con el progenitor o familiar.
