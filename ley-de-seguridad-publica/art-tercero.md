@@ -1,0 +1,15 @@
+ARTÍCULO TERCERO.- Se derogan todas las disposiciones que se opongan al presente decreto.
+El Ciudadano Gobernador Constitucional del Estado, sancionará, promulgará y dispondrá se publique, circule y observe.
+Dado en el Salón de Sesiones del Honorable Congreso del Estado, en Victoria de Durango, Dgo., a los (26) veintiséis días del mes de Noviembre del año (2014) dos mil catorce.
+DIP. MARÍA LUISA GONZÁLEZ ACHEM
+PRESIDENTE.
+DIP. ALICIA GARCÍA VALENZUELA
+SECRETARIA.
+DIP. RICARDO DEL RIVERO MARTÍNEZ
+SECRETARIO.
+POR TANTO MANDO, SE IMPRIMA, PUBLIQUE, CIRCULE Y COMUNIQUESE A QUIENES CORRESPONDA PARA SU EXACTA OBSERVANCIA.
+DADO EN EL PALACIO DEL PODER EJECUTIVO, EN VICTORIA DE DURANGO, DGO. A LOS 08 OCHO DÍAS DEL MES DE DICIEMBRE DE 2014 DOS MIL CATORCE
+EL C. GOBERNADOR CONSTITUCIONAL DEL ESTADO
+C.P. JORGE HERRERA CALDERA
+EL SECRETARIO GENERAL DE GOBIERNO
+LIC. MIGUEL ANGEL OLVERA ESCALERA
