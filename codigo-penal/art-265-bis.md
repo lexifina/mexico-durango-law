@@ -1,5 +1,5 @@
-(ADICIONADO, P.O. 25 DE DICIEMBRE DE 2014)
-Artículo 265 bis. Se impondrá de uno a cinco años de prisión y multa de setenta y dos a trescientos sesenta días de salario, a toda persona que con ánimo de acaparamiento, almacene artículos de consumo necesario, por un período mayor de tres meses sin efectuar operaciones de venta.
+(ADICIONADO [N. DE E. REPUBLICADO], P.O. 28 DE DICIEMBRE DE 2014)
+Artículo 265 Bis. Se impondrá de uno a cinco años de prisión y multa de setenta y dos a trescientos sesenta días de salario, a toda persona que con ánimo de acaparamiento, almacene artículos de consumo necesario, por un período mayor de tres meses sin efectuar operaciones de venta.
 No se procederá penalmente en contra de las personas que incurran en la conducta anterior cuando:
 I.- A pesar de haber ofrecido sus artículos en venta al público a los precios oficiales, no hubo compradores;
 II.- Las mercancías que almacena son para uso propio y en cantidades que no excedan a las necesidades normales durante dos meses.
