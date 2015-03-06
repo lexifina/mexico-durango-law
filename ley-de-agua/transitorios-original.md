@@ -42,7 +42,7 @@ Artículo Décimo Primero.- La Comisión del Agua del Estado de Durango, dentro 
 Artículo Décimo Segundo.- El Sistema Estatal de Agua Potable, Alcantarillado y Saneamiento del Estado, deberá estar funcionando a más tardar dentro de los 200 días posteriores a la entrada en vigor (sic) la presente Ley.
 Artículo Décimo Tercero.- En tanto se determinen las cuotas y tarifas por la prestación de los servicios públicos de agua potable, drenaje, alcantarillado, tratamiento y disposición de aguas residuales, en los términos previstos en la presente Ley, los prestadores de estos servicios públicos continuarán aplicando las cuotas y tarifas que hasta esta fecha se aplican.
 Artículo Décimo Cuarto.- La Comisión deberá integrar al Comité a que hace mención el capítulo VI título Sexto de esta Ley, en un plazo no mayor a sesenta días a la entrada en vigor de esta Ley.
-Dado en el Salón de de Sesiones del Honorable Congreso del Estado, en Victoria de Durango, Dgo., a los (10) diez días del mes de junio del año (2005) dos mil cinco.
+Dado en el Salón de Sesiones del Honorable Congreso del Estado, en Victoria de Durango, Dgo., a los (10) diez días del mes de junio del año (2005) dos mil cinco.
 DIP. HÉCTOR EDUARDO VELA VALENZUELA
 PRESIDENTE.
 DIP. GLORIA GUADALUPE MARTÍNEZ CASTAÑOLA
