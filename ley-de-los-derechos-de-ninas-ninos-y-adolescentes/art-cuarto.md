@@ -1,0 +1,1 @@
+ARTÍCULO CUARTO.- Para efectos del artículo anterior, el Sistema para el Desarrollo Integral de la Familia del Estado de Durango deberá reformar su Estatuto Orgánico, a fin de que la Procuraduría de Protección de Niñas, Niños y Adolescentes del Estado de Durango, quede integrada con las respectivas unidades administrativas para su adecuado funcionamiento.

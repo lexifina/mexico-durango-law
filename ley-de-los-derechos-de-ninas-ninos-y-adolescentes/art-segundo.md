@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO.- Se abroga la Ley para la Protección de los Derechos de las Niñas, los Niños y Adolescentes en el Estado de Durango aprobada mediante Decreto No. 61 de la LXII Legislatura de fecha 30 de Abril de 2002, publicado en el Periódico Oficial del Gobierno Constitucional del Estado de Durango No. 41 de fecha 23 de Mayo de 2002 y sus reformas posteriores.
