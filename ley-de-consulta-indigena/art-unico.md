@@ -1,0 +1,4 @@
+ARTÍCULO ÚNICO.- Se crea la LEY DE CONSULTA INDÍGENA PARA EL ESTADO Y MUNICIPIOS DE DURANGO, para quedar en los siguientes términos:
+LEY DE CONSULTA INDÍGENA PARA EL ESTADO Y MUNICIPIOS DE DURANGO
+Capítulo I
+Disposiciones generales
