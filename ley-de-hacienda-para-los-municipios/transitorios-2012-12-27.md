@@ -6,7 +6,7 @@ TERCERO.- Por encontrarse vigente el Decreto No. 142, de fecha 18 de Diciembre d
 3.- Sobre Anuncios.
 5.- Sobre Ejercicios de Actividades Mercantiles, Industriales, Agrícolas y Ganaderas.
 En caso de ser derogado, abrogado o reformado el decreto referido en el primer párrafo de este artículo, el cobro de los impuestos se efectuará en los términos que establezca el ordenamiento que contenga dicha reforma.
-CUARTO.- En tanto siga vigente la Declaratoria de Coordinación en Materia Federal de Derechos entre la Federación y el Estado de Durango y por encontrarse en vigor los Decretos Números 73, publicado en el Periódico Oficial del Estado Número 9 de fecha 31 de enero de 1982; 77, publicado en el Periódico Oficial del Estado Número 1 Bis., de fecha 3 de enero de 1993 y 285, publicado en el Periódico Oficial del Estado Número 51 de fecha 23 del diciembre de 1993, continúa suspendido el cobro de los siguientes Derechos Municipales:
+CUARTO.- En tanto siga vigente la Declaratoria de Coordinación en Materia Federal de Derechos entre la Federación y el Estado de Durango y por encontrarse en vigor los Decretos Números 73, publicado en el Periódico Oficial del Estado Número 9 de fecha 31 de enero de 1982; 77, publicado en el Periódico Oficial del Estado Número 1 Bis., de fecha 3 de enero de 1993 y 285, publicado en el Periódico Oficial del Estado Número 51 de fecha 23 de diciembre de 1993, continúa suspendido el cobro de los siguientes Derechos Municipales:
 3.- Por Servicio de Alienación de Predios y Fijación de Números Oficiales.
 11.- Por Registro de Fierros de Herrar y Expedición de Tarjetas de Identificación.
 12.- Sobre Certificaciones, Registros, Actas y Legalizaciones.
