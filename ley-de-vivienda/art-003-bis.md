@@ -2,7 +2,8 @@ Artículo 3 bis. Para los efectos de la presente Ley, se establece el siguiente 
 I.- Autoconstrucción de vivienda: Proceso de construcción o edificación de vivienda, realizada directamente por sus beneficiarios, de forma individual, familiar o colectiva;
 II.- Autoproducción de vivienda: Al proceso de gestión, uso de suelo, construcción y distribución de vivienda bajo el control directo de los beneficiarios, sea de forma individual o colectiva, la cual puede llevarse a cabo mediante procesos de autoconstrucción;
 III.- Comisión Estatal: Comisión Estatal de Suelo y Vivienda de Durango;
-IV.- Junta de Gobierno: Autoridad Suprema, de la Comisión Estatal de Suelo y Vivienda de Durango;
+(REFORMADA, P.O. 12 DE JUNIO DE 2016)
+IV.- Junta de Gobierno: Autoridad Suprema, de la Comisión Estatal;
 V.- Consejo Estatal: Instancia de consulta y asesoría del Ejecutivo del Estado, el cual propondrá el seguimiento de las políticas públicas en lo que respecta al Programa Estatal de Vivienda;
 VI.- Desarrollo Urbano Integral Sustentable: Proyecto urbanístico y habitacional de escala regional, que dentro de su planeación y ejecución contempla todos los elementos de carácter ambiental, urbano, económico, financiero, jurídico y social, que garanticen su adecuada y plena inserción al territorio;
 VII.- Estímulos: Medidas de carácter jurídico, administrativo, fiscal o financiero que establecerán los diferentes órdenes de gobierno para promover la participación de los sectores social y privado, en la ejecución de las acciones, procesos y programas habitacionales;
