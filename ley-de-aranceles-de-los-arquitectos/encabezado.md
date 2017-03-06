@@ -1,4 +1,4 @@
-LEY DE ARANCELES DE LOS ARQUITECTOS
+LEY DE ARANCELES DE LOS ARQUITECTOS DEL ESTADO DE DURANGO
 Ley publicada en el Periódico Oficial del Gobierno Constitucional del Estado de Durango, el jueves 15, domingo 18 y jueves 22 de diciembre de 1988.
 EL CIUDADANO LICENCIADO JOSE RAMIREZ GAMERO, GOBERNADOR CONSTITUCIONAL del ESTADO LIBRE y SOBERANO de DURANGO, a sus Habitantes, sabed:
 Que la H. Legislatura del mismo se ha servido dirigirme el siguiente:
