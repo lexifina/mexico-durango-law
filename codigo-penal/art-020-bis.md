@@ -1,4 +1,3 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE ARTÍCULO PRIMERO TRANSITORIO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
 (ADICIONADO, P.O. 6 DE MAYO DE 2014)
 Artículo 20 Bis. Delitos que se investigan por querella:
 Es necesaria la querella y sin ella no podrá procederse contra los responsables, cuando se trate de los siguientes delitos:

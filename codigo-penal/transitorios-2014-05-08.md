@@ -1,5 +1,5 @@
 P.O. 8 DE MAYO DE 2014.
-N. DE E. DEBIDO A SU IMPORTANCIA A CONTINUACIÓN SE TRANSCRIBE EL DECRETO NÚMERO 139 QUE SE RELACIONA CON EL PRESENTE ORDENAMIENTO.
+[N. DE E. DEBIDO A SU IMPORTANCIA A CONTINUACIÓN SE TRANSCRIBE EL DECRETO NÚMERO 139 QUE SE RELACIONA CON EL PRESENTE ORDENAMIENTO.]
 DECRETO 139
 DECLARATORIA DE LA ENTRADA EN VIGOR DE LA ADOPCIÓN DEL SISTEMA PENAL ACUSATORIO Y ORAL, ASÍ COMO LA ENTRADA EN VIGOR DEL CÓDIGO NACIONAL DE PROCEDIMIENTOS PENAL (SIC), EN EL SEGUNDO Y TERCER DISTRITOS JUDICIALES DEL ESTADO DE DURANGO.
 Artículo Primero. Se declara la entrada en vigor del Código Nacional de Procedimientos Penales, promulgado por el C. Licenciado Enrique Peña Nieto, Presidente de la República, y publicado en el Diario Oficial de la Federación en fecha 05 de marzo del año 2014, en el Segundo y Tercer Distritos Judiciales del Estado de Durango, integrados de la siguiente manera: Segundo distrito: Ciudad Lerdo como residencia, comprende los municipios de Lerdo y Mapimí, excepto en materia penal que corresponde al tercer distrito; Tercer distrito: Gómez Palacio como residencia; comprende el Municipio del mismo nombre y el de Tlahualilo.

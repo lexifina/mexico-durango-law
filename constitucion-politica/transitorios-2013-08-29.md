@@ -15,4 +15,4 @@ El Gobernador del Estado deberá presentar a partir del año 2014, el informe a 
 Séptimo.
 La expedición de la ley que regulará la organización y funcionamiento del Instituto de Evaluación de Políticas Públicas del Estado de Durango, así como los nombramientos de sus integrantes deben realizarse en un plazo máximo de noventa días, contado a partir del inicio de la LXVI Legislatura del Congreso del Estado de Durango. Para efecto de su renovación escalonada, la duración en el cargo de los consejeros nombrados por primera ocasión será de tres, cuatro y cinco años respectivamente.
 Octavo.
-El Congreso del Estado expedirá la ley que regule la organización y funcionamiento de la Comisión Anticorrupción, dentro de los 180 días posteriores a la fecha de entrada en vigor de la Ley Federal correspondiente.
+(DEROGADO, P.O. 16 DE MARZO DE 2017)
