@@ -1,4 +1,0 @@
-(ADICIONADO, P.O. 8 DE DICIEMBRE DE 2006)
-ARTICULO 168-BIS-D.- Cuando se formulen declaraciones complementarias sustituyendo datos de la original, en virtud de las cuales resulten diferencias a cargo del contribuyente por declarar, o bien resulten diferencias a su favor, o se incrementen los ya declarados, sólo podrán ser modificados por el contribuyente hasta en tres ocasiones, siempre que no se haya iniciado el ejercicio de las facultades de comprobación, no operará la anterior limitación en los siguientes casos:
-a) Cuando sólo incremente el total de los metros cúbicos extraídos a que se refiere el artículo 168-BIS-B.
-b) Cuando el contribuyente haga dictaminar por contador público autorizado sus estados financieros, podrá corregir, en su caso, la declaración original como consecuencia de los resultados obtenidos en el dictamen respectivo.

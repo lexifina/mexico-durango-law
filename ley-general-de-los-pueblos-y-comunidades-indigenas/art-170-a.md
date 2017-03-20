@@ -1,6 +1,0 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO QUINTO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
-(REFORMADO, P.O. 19 DE DICIEMBRE DE 2011)
-ARTICULO 170-A.- La Secretaría otorgará de conformidad con lo establecido en el artículo 21 de la Ley Sobre Venta y Consumo de Bebidas Alcohólicas en el Estado de Quintana Roo, permisos especiales y causarán derechos en los siguientes casos:
-I.- Cuando se enajenen bebidas alcohólicas en envase cerrado con presentación de artesanía mexicana, denominados SOUVENIRS, cuyo contenido máximo sea hasta 150 mililitros, se cobrará por año de 60 S.M.G. a 240 S.M.G.
-II.- Por la realización eventual de alguna actividad pública de carácter artístico, cultural, social o deportivo y en los cuales se realicen la venta y consumo de bebidas alcohólicas, se cobrará por día de 15 S.M.G. a 240 S.M.G.
-III.- Cuando se preste el servicio público especializado a que se refiere el artículo 68 de la Ley de Tránsito, Transporte y Explotación de Vías y Carreteras del Estado de Quintana Roo, y dentro de este servicio otorgue para su venta o consumo bebidas alcohólicas y que por la naturaleza de su actividad comercial, no cuente con licencia de bebidas alcohólicas, se cobrará por año de 50 S.M.G. a 110 S.M.G.

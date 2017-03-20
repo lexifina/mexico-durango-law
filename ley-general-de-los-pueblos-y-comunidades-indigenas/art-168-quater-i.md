@@ -1,4 +1,0 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO QUINTO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
-(ADICIONADO, P.O. 19 DE DICIEMBRE DE 2011)
-ARTICULO 168-QUATER-I.- En la enajenación por primera vez al consumidor por el fabricante, ensamblador, distribuidor o comerciante en el ramo de vehículos o importación definitiva por primera vez al país, de vehículos de año modelo anterior al año en que se realice o efectúe dicho acto, se pagará el impuesto correspondiente al año de calendario en que se enajene o importe, según corresponda, bajo el criterio de vehículo nuevo.
-En la enajenación o importación de vehículos nuevos de año modelo posterior al año en que se realice o efectúe dicho acto, se pagará el impuesto correspondiente al año de calendario en que se enajene o importe, según corresponda. El impuesto para dichos vehículos se determinará en el siguiente año de calendario bajo el criterio de vehículo nuevo.

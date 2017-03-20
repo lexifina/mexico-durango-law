@@ -1,3 +1,0 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO QUINTO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
-(ADICIONADO, P.O. 19 DE DICIEMBRE DE 2011)
-ARTICULO 170-H.- Por la reposición de la Licencia de Bebidas Alcohólicas en cualquiera de sus giros, se cobrara 53 veces el S.M.G.

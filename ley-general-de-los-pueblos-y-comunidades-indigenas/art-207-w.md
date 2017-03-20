@@ -1,5 +1,0 @@
-(ADICIONADO, P.O. 4 DE DICIEMBRE DE 2013)
-ARTICULO 207-W.- Este derecho se causará y pagará en las oficinas recaudadoras de rentas correspondientes o a través de los depósitos o transferencias bancarias en las cuentas que determine la Secretaría, al día hábil siguiente a la firma del convenio o en las fechas que se establezcan en los contratos de acuerdo a la siguiente tarifa:
-I. Por el servicio que preste la Unidad de Servicios Especiales de Vigilancia, de doce horas diarias de vigilancia especial de instalaciones, por cada elemento, se causará la cantidad de 12.4 SMG, pagaderos en términos de lo establecido en los contratos que se suscriban.
-II. Por el servicio que preste la Unidad de Servicios Especiales de Vigilancia, por doce horas diarias de protección de personas, se causará por cada elemento, la cantidad de 25.0 SMG, pagaderos en términos de lo establecido en los contratos que se suscriban.
-III. Por el servicio que preste la Unidad de Servicios Especiales de Vigilancia, por la custodia de transporte, se causará por elemento de que se disponga, la cantidad de 1.0 SMG, por cada 3 kilómetros de recorrido.

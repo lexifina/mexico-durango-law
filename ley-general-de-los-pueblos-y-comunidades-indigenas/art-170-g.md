@@ -1,3 +1,0 @@
-N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO QUINTO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
-(ADICIONADO, P.O. 19 DE DICIEMBRE DE 2011)
-ARTICULO 170-G.- Por la renovación de la Licencia de Bebidas Alcohólicas en cualquiera de sus giros, se cobrara 40 veces el S.M.G.

@@ -1,2 +1,0 @@
-(REFORMADO, P.O. 4 DE DICIEMBRE DE 2013)
-ARTICULO 227-A.- El notario público titular, auxiliar o suplente en funciones deberá otorgar y mantener vigente una garantía a favor del Gobierno del Estado de Quintana Roo por la cantidad de 1000 S.M.G. Dicha garantía deberá depositarse en efectivo ante la Recaudadora de Rentas de su jurisdicción y actualizarse en el mismo porcentaje en que se modifique el citado Salario Mínimo, dentro de los treinta días siguientes a la fecha en que se publique la modificación del Salario en el Diario Oficial de la Federación.
