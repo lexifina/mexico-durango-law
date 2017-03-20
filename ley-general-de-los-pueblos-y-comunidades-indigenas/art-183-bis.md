@@ -1,0 +1,2 @@
+(REFORMADO, P.O. 16 DE DICIEMBRE DE 2014) (F. DE E., P.O. 16 DE ENERO DE 2015)
+ARTICULO 183-BIS.- Los servicios médicos asistenciales que se otorguen a la población abierta se cobrarán en las unidades administrativas a que se refiere el artículo anterior y causarán los derechos establecidos en pesos mexicanos, salvo los diagnósticos considerados dentro del sistema de protección social en salud, para su población afiliada, de acuerdo a la siguiente:

@@ -1,0 +1,5 @@
+(ADICIONADO, P.O. 16 DE DICIEMBRE DE 2014)
+ARTICULO 9-BIS.- El impuesto se causará y determinará de acuerdo a lo siguiente:
+Se aplicará la tasa del 1% a la base.
+La base de este impuesto será la prevista por esta ley para el pago del Impuesto Sobre Uso o Tenencia Vehicular de vehículos nuevos y de hasta 9 años modelo anterior del ejercicio fiscal en que se efectúe su adquisición como vehículo nuevo, considerándose éste en términos de lo dispuesto en la fracción II del artículo 168-Quater-A de esta ley. En el caso de vehículos del servicio público le será aplicable la base establecida para los vehículos del servicio particular.
+Tratándose de vehículos de motor usados cuyo año modelo de antigüedad corresponda a diez o más años a la fecha en que se realice su adquisición como vehículo nuevo, será aplicable para la determinación de la base los factores de depreciación y la actualización correspondiente a los nueve años de antigüedad previstos por esta ley para el pago del Impuesto Sobre Uso o Tenencia Vehicular.

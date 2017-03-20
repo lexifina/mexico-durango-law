@@ -1,0 +1,9 @@
+(REFORMADO PRIMER PÁRRAFO, P.O. 8 DE DICIEMBRE DE 2006)
+ARTICULO 168-M.- Los retenedores de este impuesto que tengan dos o más establecimientos dentro del Estado, en los que se presten los servicios gravados por este impuesto, presentarán por todos ellos una sola declaración de pago provisional o del ejercicio, según se trate, en la oficina Recaudadora de Rentas que corresponda a su domicilio fiscal, determinado de conformidad con lo dispuesto en el Código Fiscal del Estado.
+(ADICIONADO, P.O. 22 DE NOVIEMBRE DE 1996)
+En las declaraciones que se presenten en los términos del párrafo anterior, deberán consignarse los datos concernientes al número de establecimientos por los que se declara, la ubicación de los mismos, el valor de las contraprestaciones por los servicios prestados en cada establecimiento y los demás datos señalados en las mismas.
+(REFORMADO, P.O. 8 DE DICIEMBRE DE 2006)
+Los retenedores que tengan varios establecimientos en el Estado, deberán conservar en cada uno de ellos, copia de las declaraciones de pago provisional y del ejercicio, y proporcionarlas a las autoridades fiscales estatales, cuando así lo requieran.
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE PÁRRAFO, VÉASE TRANSITORIO QUINTO DEL DECRETO QUE MODIFICA ESTE ORDENAMIENTO.
+(ADICIONADO, P.O. 19 DE DICIEMBRE DE 2011)
+Los retenedores deberán de proporcionar mensualmente mediante formas aprobadas por la Secretaría a través de los medios electrónicos dispuestos por ésta, la información que se refiere a ingresos en efectivo, por cheques y transferencias derivadas de depósitos, anticipos, intereses y penas convencionales por la prestación o pagos del servicio de hospedaje, todo lo anterior en relación con las operaciones practicadas con personas físicas, morales o unidades económicas, a más tardar el día 17 del mes inmediato posterior al que corresponda dicha información.

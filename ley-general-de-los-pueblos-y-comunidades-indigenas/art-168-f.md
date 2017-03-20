@@ -1,0 +1,6 @@
+(ADICIONADA CON LOS ARTÍCULOS QUE LA INTEGRAN, P.O. 31 DE ENERO DE 1996)
+SECCION TERCERA
+DE LA TASA
+N. DE E. EN RELACIÓN CON LA ENTRADA EN VIGOR DEL PRESENTE ARTÍCULO, VÉASE TRANSITORIO CUARTO DEL DECRETO QUE MODIFICA LA LEY.
+(REFORMADO, P.O. 16 DE DICIEMBRE DE 2009)
+ARTICULO 168-F.- El impuesto se calculará aplicando la tasa del 3% sobre el valor de facturación y/o contratación de los servicios a que se refieren los artículos 168-A y 168-C.

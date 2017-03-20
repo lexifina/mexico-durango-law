@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 19 DE MARZO DE 2017)
+Artículo 161 BIS.- El servicio prestado en materia de obras públicas y desarrollo urbano por licencia de rompimiento de pavimento público se cobrará a 5 veces la Unidad de Medida y Actualización por metro cuadrado o fracción.
+De forma independiente a la autorización señalada en el párrafo anterior, se pagará a favor del Municipio el concepto de recuperación de área a romper de pavimento público, en los términos de las normativas fiscales y reglamentarias que así lo prevengan, y debiendo asegurar dicho pago las mismas garantías de calidad que indican las leyes de la materia.
