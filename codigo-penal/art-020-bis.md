@@ -4,7 +4,7 @@ Es necesaria la querella y sin ella no podrá procederse contra los responsables
 I. Abandono, negación y práctica indebida del servicio médico;
 II. Abuso de confianza;
 III. Abuso sexual a que se refiere el artículo 178 de este Código;
-IV. Adulterio;
+IV. (DEROGADA, P.O. 1 DE JUNIO DE 2017)
 V. Allanamiento de morada;
 VI. Amenazas;
 VII. Bigamia;
@@ -27,5 +27,9 @@ XXIII. Privación de libertad con fines sexuales;
 XXIV. Procreación asistida e inseminación artificial;
 XXV. Revelación de secretos o comunicación reservada;
 XXVI. Robo simple, cuando el valor de lo robado no exceda lo estipulado en la fracción I del artículo 196 de este Código;
-XXVII. Simulación de pruebas; y
-XXVIII. Violación a la intimidad personal o familiar.
+(REFORMADA, P.O. 1 DE JUNIO DE 2017)
+XXVII. Simulación de pruebas;
+(REFORMADA, P.O. 1 DE JUNIO DE 2017)
+XXVIII. Violación a la intimidad personal o familiar; y
+(ADICIONADA, P.O. 1 DE JUNIO DE 2017)
+XXIX. La discriminación.
