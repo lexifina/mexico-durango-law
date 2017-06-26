@@ -10,3 +10,7 @@ III. Existan datos que establezcan que previamente se han cometido amenazas, aco
 IV. El cuerpo de la víctima sea expuesto, depositado o arrojado en un lugar público; o
 (ADICIONADA, P.O. 11 DE DICIEMBRE DE 2011)
 V. La víctima haya sido incomunicada sin ánimo de obtención de lucro, cualquiera que sea el tiempo previo a su fallecimiento.
+(ADICIONADA, P.O. 25 DE JUNIO DE 2017)
+VI. Que entre la víctima y el sujeto activo exista o haya existido una relación de parentesco por consanguinidad o afinidad, de matrimonio, concubinato, sociedad de convivencia, noviazgo o cualquier otra relación de hecho o amistad; o
+(ADICIONADA, P.O. 25 DE JUNIO DE 2017)
+VII. Entre el activo y la víctima hubo o haya existido una relación laboral, docente o cualquier otro que implique confianza, subordinación o superioridad.
