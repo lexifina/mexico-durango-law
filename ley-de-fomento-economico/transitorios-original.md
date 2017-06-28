@@ -4,8 +4,10 @@ SEGUNDO. Se abroga la Ley de Desarrollo Económico para el Estado de Durango, ap
 TERCERO. Se abroga la Ley de Fomento a la Competitividad de la Micro, Pequeña y Mediana Empresa del Estado de Durango, aprobada mediante Decreto No. 383, publicado en el Periódico Oficial del Gobierno del Estado de Durango No. 46 bis de fecha 6 de diciembre del año 2012.
 CUARTO. Se abroga la Ley de Fomento al Emprendedurismo Juvenil del Estado de Durango, aprobada mediante Decreto No. 451, publicado en el Periódico Oficial del Gobierno del Estado de Durango No. 51 BIS de fecha 23 de diciembre del año 2012.
 QUINTO. Se derogan todas las disposiciones que se opongan a la presente Ley.
-SEXTO. El Gobernador del Estado, por conducto de la Secretaría contará con un plazo de 180 días naturales para expedir las disposiciones reglamentarias de la presente Ley.
-El Gobernador del Estado, por conducto de la Secretaría podrá emitir lineamientos generales para la aplicación de la presente Ley, en tanto se publica el Reglamento sin que ello implique una ampliación en el plazo a que hace referencia el párrafo anterior.
+(ADICIONADO [N. DE E. REFORMADO], P.O. 25 DE JUNIO DE 2017)
+SEXTO.- El Gobernador del Estado tendrá un plazo de 45 días una vez entrada en vigor la siguiente reforma, para convocar a la integración del Consejo de Desarrollo Económico al que alude el artículo 9 de la presente ley.
+(REUBICADO [N. DE E. Y FUSIONADOS PÁRRAFOS, ANTES ARTÍCULO SEXTO], P.O. 25 DE JUNIO DE 2017)
+SEPTIMO.- El Gobernador del Estado, por conducto de la Secretaría contará con un plazo de 180 días naturales para expedir las disposiciones reglamentarias de la presente Ley. El Gobernador del Estado, por conducto de la Secretaría podrá emitir lineamientos generales para la aplicación de la presente Ley, en tanto se publica el Reglamento sin que ello implique una ampliación en el plazo a que hace referencia el párrafo anterior.
 El Ciudadano Gobernador del Estado, sancionará, promulgará y dispondrá se publique, circule y observe.
 Dado en el Salón de Sesiones del Honorable Congreso del Estado, en Victoria de Durango, Dgo., a los (10) diez días del mes de noviembre del año (2015) dos mil quince.
 DIP. OCTAVIO CARRETE CARRETE
