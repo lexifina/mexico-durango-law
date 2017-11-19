@@ -1,5 +1,5 @@
 (ADICIONADO, P.O. 16 DE NOVIEMBRE DE 2014)
-ARTÍCULO 112 BIS1. Cuando dentro del territorio estatal o municipal se localicen monumentos arqueológicos, artísticos e históricos y zonas de monumentos de competencia federal, los gobiernos federales, locales o municipales podrán celebrar acuerdos o convenios de cooperación y coordinación para:
+ARTÍCULO 112 BIS 1. Cuando dentro del territorio estatal o municipal se localicen monumentos arqueológicos, artísticos e históricos y zonas de monumentos de competencia federal, los gobiernos federales, locales o municipales podrán celebrar acuerdos o convenios de cooperación y coordinación para:
 I. Colaborar en la restauración, conservación y mejoramiento de los monumentos arqueológicos, artísticos e históricos y zonas de monumentos;
 II. Construir, restaurar o mejorar edificios, a efecto de exhibir monumentos arqueológicos, artísticos e históricos;
 III. Auxiliar a los inspectores de monumentos arqueológicos, artísticos e históricos y zonas de monumentos, cuando éstos así lo soliciten;
