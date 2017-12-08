@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 7 DE DICIEMBRE DE 2017)
+Artículo 39 Bis. El Municipio, lugar o región que haya sido declarado como zona de desarrollo turístico prioritario, tendrá acceso a los apoyos que al efecto establezca el Programa Local de Turismo.
+Las localidades declaradas pueblos mágicos y los sitios Patrimonio Mundial, de acuerdo con la legislación federal en la materia, tendrán acceso a apoyos extraordinarios, que serán independientes a las partidas presupuestales ordinarias que se le asignen en los presupuestos de egresos del Estado y de los Municipios. Dichas partidas sólo podrán destinarse a los programas y proyectos que se implementen para tal fin.
