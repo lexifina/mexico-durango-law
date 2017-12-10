@@ -1,0 +1,6 @@
+P.O. 7 DE DICIEMBRE DE 2017.
+[N. DE E. TRANSITORIOS DEL "DECRETO NO. 246.- QUE CONTIENE REFORMAS Y ADICIONES A LA LEY DE EDUCACIÓN DEL ESTADO DE DURANGO".]
+ARTÍCULO PRIMERO. El presente decreto entrará en vigor al día hábil siguiente de su publicación en el Periódico Oficial del Gobierno del Estado de Durango.
+ARTÍCULO SEGUNDO.- El Congreso del Estado, de manera gradual desde la entrada en vigor del presente Decreto hasta el 2020 deberá prever en las respectivas Leyes de Egresos del Estado, las partidas presupuestales necesarias para dar cumplimiento a lo dispuesto en el mismo, a fin de que en el ciclo escolar 2020 - 2021 estén cubiertas todas las necesidades de infraestructura escolar.
+ARTÍCULO TERCERO.- LA Secretaría tomará las medidas necesarias para que en un plazo no mayor a siete años contados a partir de la entrada en vigor del presente decreto, todas las Escuelas Publicas de Educación Básica y Media Superior, cuenten con la estructura física consistente en Domos, Techumbres o Estructuras Análogas, comenzando por las Escuelas que presentan mayor necesidad, de acuerdo con la situación que están viviendo actualmente en nuestro Estado.
+ARTÍCULO CUARTO.- Se derogan todas las disposiciones legales que se opongan al contenido del presente.
