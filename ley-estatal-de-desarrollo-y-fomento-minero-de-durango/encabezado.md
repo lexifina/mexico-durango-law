@@ -1,0 +1,10 @@
+LEY ESTATAL DE DESARROLLO Y FOMENTO MINERO DE DURANGO
+Ley publicada en el Periódico Oficial del Gobierno del Estado de Durango, el domingo 31 de diciembre de 2017.
+EL CIUDADANO DOCTOR JOSÉ ROSAS AISPURO TORRES GOBERNADOR DEL ESTADO LIBRE Y SOBERANO DE DURANGO, A SUS HABITANTES, SABED:
+QUE LA H. LEGISLATURA DEL MISMO SE HA SERVIDO DIRIGIRME EL SIGUIENTE:
+En diversas fechas fueron presentadas a esta H. Legislatura del Estado, dos iniciativas de Decreto, la primera por los CC. Diputados Jorge Alejandro Salúm del Palacio, José Antonio Ochoa Rodríguez, Gina Gerardina Campuzano González, Aleonso Palacio Jáquez, Judith Murguía Corral y Manuel Ibarra Mirano, integrantes del Grupo Parlamentario del Partido Acción Nacional y el Representante del Partido Convergencia respectivamente, de la LXV Legislatura; la segunda enviada por los CC. Diputadas Rosa Isela de la Rocha Nevárez, Elia Estrada Macías y Mar Grecia Oliva Guerrero integrantes del Grupo Parlamentario del Partido de la Revolución Democrática y los CC. Diputados Rodolfo Dorador Pérez Gavilán, Silvia Patricia Jiménez Delgado, Gina Gerardina Campuzano González, Elizabeth Nápoles González, Jorge Alejandro Salúm del Palacio, Augusto Ávalos Longorja, y José Antonio Ochoa Rodríguez, integrantes del Grupo Parlamentario del Partido Acción Nacional de esta LXVII Legislatura, que contienen LEY DE FOMENTO MINERO DEL ESTADO DE DURANGO; mismas que fueron turnadas a la Comisión de Asuntos Mineros y de Zonas Áridas integrada por los CC. Diputados; Rosa Isela de la Rocha Navárez, Maximiliano Silerio Díaz, Marisol Peña Rodríguez, José Antonio Ochoa Rodríguez y Francisco Javier Ibarra Jáquez; Presidente, Secretario y Vocales respectivamente, los cuales emitieron su dictamen favorable con base en los siguientes:
+CONSIDERANDOS
+[…]
+Con base en los anteriores Considerandos; esta H. LXVII Legislatura del Estado, expide el siguiente:
+D E C R E T O No. 341
+LA SEXAGÉSIMA SEXTA LEGISLATURA DEL HONORABLE CONGRESO DEL ESTADO LIBRE Y SOBERANO DE DURANGO, CON LAS FACULTADES QUE LE CONFIERE EL ARTÍCULO 82 DE LA CONSTITUCIÓN POLÍTICA LOCAL, A NOMBRE DEL PUEBLO, DECRETA:
