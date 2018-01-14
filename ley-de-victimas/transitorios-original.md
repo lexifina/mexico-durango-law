@@ -11,7 +11,8 @@ NOVENO.- El Gobierno del Estado deberá hacer las previsiones presupuestales nec
 DÉCIMO.- En el término de 15 días a partir de la publicación del presente Decreto se deberá de integrar el Fondo Estatal y crearse el fideicomiso en términos que correspondan.
 DÉCIMO PRIMERO.- La designación de los titulares del Fondo, del Registro y de la Asesoría Jurídica, así como de los asesores de víctimas, deberá realizarse en un plazo no mayor de 15 días a partir de la entrada en vigor del presente Decreto.
 DÉCIMO SEGUNDO.- Los servidores públicos que actualmente se encuentran en funciones dentro de la Comisión Estatal de Atención Integral a Víctimas continuaran en el ejercicio de su encargo en la Comisión Ejecutiva Estatal de Atención a Víctimas, hasta en tanto no se realicen los nuevos nombramientos, o en su caso la ratificación correspondiente.
-DÉCIMO TERCERO.- Los recursos humanos, económicos y materiales, así como los archivos que sean parte de las actuaciones de la asesoría jurídica de víctimas, que se encuentren en posesión de la Fiscalía General del Estado, deberán de ser remitidos a la Comisión Ejecutiva Estatal.
+(F. DE E., P.O. 14 DE ENERO DE 2018)
+DÉCIMO TERCERO.- Los recursos humanos, económicos y materiales, así como los archivos que sean parte de las actuaciones de la asesoría jurídica de víctimas, que se encuentren en posesión de los Organismos y Dependencias del Estado, deberán de ser remitidos a la Comisión Ejecutiva Estatal.
 Los expedientes relativos a la asesoría jurídica de victimas que se encuentren en posesión del Instituto de Defensoría Pública del Estado de Durango, deberán de ser remitidos a la Comisión Ejecutiva Estatal.
 El Ciudadano Gobernador del Estado, sancionará promulgará y dispondrá se publique, circule y observe.
 Dado en el Salón de Sesiones del Honorable Congreso del Estado, en Victoria de Durango, Dgo., en Victoria de Durango, Dgo., a los 06 días del mes de diciembre del año (2017) dos mil diecisiete.
