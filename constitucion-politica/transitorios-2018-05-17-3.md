@@ -1,0 +1,7 @@
+P.O. 17 DE MAYO DE 2018.
+[N. DE E. TRANSITORIOS DEL "DECRETO NO. 212.- POR EL CUAL SE REFORMA EL INCISO G DE LA FRACCIÓN II DEL ARTÍCULO 82; SE REFORMA EL PÁRRAFO TERCERO DEL ARTÍCULO 85, SE REFORMA EL TERCER PÁRRAFO DEL ARTÍCULO 163, SE REFORMA EL ARTÍCULO 173, TODOS DE LA CONSTITUCIÓN POLÍTICA DEL ESTADO LIBRE Y SOBERANO DE DURANGO".]
+PRIMERO.- El presente Decreto entrará en vigor al día siguiente al de su publicación en el Periódico Oficial del Gobierno del Estado.
+SEGUNDO.- El Congreso del Estado deberá expedir la legislación que corresponda a fin de dar cumplimiento al presente decreto en un plazo que no exceda de 60 días a partir de la entrada en vigor del presente decreto.
+TERCERO.- Tratándose de municipios que no cuenten con las tecnologías de la información y comunicación necesarias para cumplir lo anterior, podrán emplearse formatos impresos, siendo responsabilidad de los Órganos internos de control y Secretaría encargada del control interno del Poder Ejecutivo verificar que dichos formatos sean digitalizados e incluir la información que corresponda en el sistema de evolución patrimonial y de declaración de intereses, procediendo en términos del artículo 34 de la Ley General de Responsabilidades Administrativas.
+CUARTO.- Las declaraciones patrimoniales que hayan sido presentadas ante la Entidad de Auditoría Superior del Estado antes del 18 de julio de 2017 permanecerán en custodia de dicha instancia.
+QUINTO.- Se derogan todas aquellas disposiciones que se opongan al contenido del presente Decreto.
