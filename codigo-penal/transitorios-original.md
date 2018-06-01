@@ -1,7 +1,7 @@
 TRANSITORIOS
 (REFORMADO, P.O. 10 DE DICIEMBRE DE 2009)
 ARTÍCULO PRIMERO.- Entrada en vigor.
-El presente Código entrará en vigor en las fechas y ámbitos espacial y temporal de validez que determinen las Declaratorias que emita el Congreso del Estado o la Comisión Permanente a solicitud expresa del Tribunal Superior de Justicia del Estado, respecto de la vigencia del Código Procesal Penal del Estado de Durango, aprobado mediante Decreto No. 232, y publicado en el Periódico Oficial del Gobierno Constitucional del Estado de Durango, No. 11 de fecha 5 de diciembre de 2008.
+El presente Código entrará en vigor en las fechas y ámbitos espacial y temporal de validez que determinen las Declaratorias que emita el Congreso del Estado o la Comisión Permanente a solicitud expresa del Tribunal Superior de Justicia del Estado, respecto de la vigencia del Código Procesal Penal del Estado de Durango, aprobado mediante Decreto No. 232, y publicado el Periódico Oficial del Gobierno Constitucional del Estado de Durango, No. 11 de fecha 5 de diciembre de 2008.
 Para el Sistema Integral de Justicia para Menores Infractores, el presente ordenamiento entrará en vigor en todo el territorio del Estado, en la fecha que determine la declaratoria que emita el Congreso del Estado o la Comisión Permanente, a solicitud expresa del Tribunal Superior de Justicia del Estado.
 (REFORMADO, P.O. 10 DE DICIEMBRE DE 2009)
 ARTÍCULO SEGUNDO.- Abrogación y Derogación.
