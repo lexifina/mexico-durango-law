@@ -14,3 +14,5 @@ V. La víctima haya sido incomunicada sin ánimo de obtención de lucro, cualqui
 VI. Que entre la víctima y el sujeto activo exista o haya existido una relación de parentesco por consanguinidad o afinidad, de matrimonio, concubinato, sociedad de convivencia, noviazgo o cualquier otra relación de hecho o amistad; o
 (ADICIONADA, P.O. 25 DE JUNIO DE 2017)
 VII. Entre el activo y la víctima hubo o haya existido una relación laboral, docente o cualquier otro que implique confianza, subordinación o superioridad.
+(ADICIONADO, P.O. 31 DE MAYO DE 2018)
+En el caso de la fracción VI se impondrá además de la pena, la pérdida de derechos con respecto a la víctima y ofendidos, incluidos los de carácter sucesorio.
