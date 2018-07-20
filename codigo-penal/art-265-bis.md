@@ -1,16 +1,5 @@
-(REFORMADO PRIMER PÁRRAFO, P.O. 5 DE MARZO DE 2017)
-Artículo 265 Bis. Se impondrá de uno a cinco años de prisión y multa de setenta y dos a trescientas sesenta veces la Unidad de Medida y Actualización, a toda persona que con ánimo de acaparamiento, almacene artículos de consumo necesario, por un período mayor de tres meses sin efectuar operaciones de venta.
-(ADICIONADO [N. DE E. REPUBLICADO], P.O. 28 DE DICIEMBRE DE 2014)
-No se procederá penalmente en contra de las personas que incurran en la conducta anterior cuando:
-I.- A pesar de haber ofrecido sus artículos en venta al público a los precios oficiales, no hubo compradores;
-II.- Las mercancías que almacena son para uso propio y en cantidades que no excedan a las necesidades normales durante dos meses.
-(ADICIONADO [N. DE E. REPUBLICADO], P.O. 28 DE DICIEMBRE DE 2014)
-Se consideran artículos de consumo necesario todos los comestibles de primera necesidad, medicinas, combustibles, llantas y refacciones mecánicas destinadas para uso particular y de empresas de transportes y en general, las que sean necesarias para la economía de la región.
-(REFORMADO, P.O. 5 DE MARZO DE 2017)
-Quien realice operaciones de venta a precios que produzcan lucro inmoderado, mercancías de las señaladas en el párrafo anterior, será castigado de tres meses a dos años de prisión y multa de dieciocho a ciento cuarenta y cuatro veces la Unidad de Medida y Actualización.
-(ADICIONADO [N. DE E. REPUBLICADO], P.O. 28 DE DICIEMBRE DE 2014)
-La misma pena de prisión se impondrá a quien desobedezca las disposiciones de la autoridad dictadas con el fin de controlar la venta de artículos alimenticios, a precios oficiales y asimismo a los comerciantes, que estando autorizados únicamente a realizar sus mercancías al menudeo, efectúen también operaciones de mayoreo.
-(REFORMADO, P.O. 5 DE MARZO DE 2017)
-Cuando los productores, distribuidores, comisionistas, comerciantes y en general cualquiera persona, con el fin de obtener lucro inmoderado, concierten actos tendientes a elevar en forma exagerada los precios de las mercancías de consumo necesario, serán sancionados de dos a nueve años de prisión y multa de ciento cuarenta y cuatro a seiscientas cuarenta y ocho veces la Unidad de Medida y Actualización.
-(ADICIONADO [N. DE E. REPUBLICADO], P.O. 28 DE DICIEMBRE DE 2014)
-Los comerciantes, los distribuidores y los comisionistas que reincidan en cualquiera de los actos delictuosos enumerados en artículos anteriores y aún cuando hayan sufrido las penas establecidas por esta Ley, serán castigados además con la cancelación de la licencia respectiva, para que puedan ejercitar actos de comercio en toda la Entidad.
+(ADICIONADO, P.O. 19 DE JULIO DE 2018)
+Artículo 265 Bis. Se sancionará con una pena de cuatro a siete años de prisión, y multa de doscientos ochenta y ocho a quinientos cuatro veces la Unidad de Medida y Actualización, además del decomiso de los objetos y productos del delito; de manera oficiosa el juez decretará la prisión preventiva:
+I. A quien fabrique, almacene, distribuya o suministre bebidas alcohólicas falsificadas, entendiéndose por éstas cuya naturaleza o composición no correspondan con las que se etiquete, anuncie, expenda, suministre, o cuando no coincidan las especificaciones de su autorización o hayan sufrido tratamiento que disimule su alteración, o encubra defectos en su proceso o en la calidad sanitaria de las materia (sic) primas utilizadas;
+II. A quien fabrique, comercialice, almacene o suministre, bebidas alcohólicas que contengan una proporción mayor al 55% de alcohol etílico en volumen; y
+III. A quien venda bebidas alcohólicas adulteradas a menores de edad, a sabiendas de que su compra será para consumo de éstos; se aumentará en una mitad más la penalidad establecida.

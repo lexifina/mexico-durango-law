@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 19 DE JULIO DE 2018)
+Artículo 19 BIS.- El Sistema Estatal es el conjunto orgánico y articulado de estructuras, relaciones funcionales, métodos y procedimientos que establecen las dependencias y las entidades de la Administración Pública del Estado y con el sector social a fin de efectuar acciones de común acuerdo destinadas a la promoción, protección y procuración de la igualdad sustantiva entre mujeres y hombres.
