@@ -1,0 +1,7 @@
+P.O. 17 DE MARZO DE 2019.
+[N. DE E. TRANSITORIOS DEL "DECRETO NO. 71.- QUE CONTIENE REFORMAS Y ADICIONES A DIVERSOS ARTÍCULOS DE LA LEY DE LOS DERECHOS DE NIÑAS, NIÑOS Y ADOLESCENTES DEL ESTADO DE DURANGO".]
+PRIMERO.- El presente decreto entrará en vigor al día siguiente al de su publicación en el Periódico Oficial del Gobierno del Estado de Durango.
+SEGUNDO.- Por esta única ocasión el Titular de la Secretaría Ejecutiva, durará en su encargo lo que resta de la actual administración pública estatal, pudiendo ser ratificado en los términos de lo que establece el presente Decreto.
+TERCERO.- Para su funcionamiento, la Secretaria Ejecutiva dispondrá de los recursos que le sean asignados en la Ley de Egresos del Estado Libre y Soberano de Durango para el ejercicio fiscal correspondiente. Para el Ejercicio Fiscal 2019, el ejecutivo del Estado, por conducto de la Secretaría de Finanzas y de Administración del Gobierno del Estado, hará las ministraciones mensuales que correspondan a la Secretaría Ejecutiva tomadas del Presupuesto que tiene autorizado el Sistema Local de Protección de Derechos de Niñas, Niños y Adolescentes.
+CUARTO.- Dentro de los noventa días hábiles siguientes a partir de la entrada en vigor del presente Decreto, deberá ser expedido y publicado en el Periódico Oficial del Gobierno del Estado de Durango el Reglamento correspondiente.
+QUINTO.- Se derogan todas las disposiciones legales que se opongan al presente Decreto.
