@@ -33,4 +33,4 @@ n) Imponer, por estereotipos de género, la realización de actividades y tareas
 (ADICIONADO, P.O. 31 DE MARZO DE 2019)
 o) Restringir o impedir el uso de las acciones constitucionales y legales para proteger sus derechos, y/o evitar el cumplimiento de las resoluciones correspondientes; y
 (ADICIONADO, P.O. 31 DE MARZO DE 2019)
-p) Aplicar sanciones pecuniarias, descuentos arbitrarios e llegales (sic) y/o retención de salarios.
+p) Aplicar sanciones pecuniarias, descuentos arbitrarios e Ilegales (sic) y/o retención de salarios.
