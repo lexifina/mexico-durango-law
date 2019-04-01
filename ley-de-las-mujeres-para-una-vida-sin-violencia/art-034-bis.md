@@ -10,6 +10,9 @@ VII. La Dirección General del Sistema Estatal para el Desarrollo Integral de la
 VIII. La Secretaría de Salud;
 IX. La Secretaría de Seguridad Pública;
 X. La Secretaría de Finanzas y de Administración;
-XI. La Secretaría de Educación Pública del Estado; y
-XII. Los organismos o dependencias instituidos en el ámbito municipal por acuerdo del Cabildo, para el desarrollo integral de las mujeres.
+(REFORMADA, P.O. 31 DE MARZO DE 2019)
+XI. La Secretaría de Educación Pública del Estado;
+(ADICIONADA, P.O. 31 DE MARZO DE 2019)
+XII. El Instituto Electoral y de Participación Ciudadana del Estado de Durango; y
+XIII. Los organismos o dependencias instituidos en el ámbito municipal por acuerdo del Cabildo, para el desarrollo integral de las mujeres.
 El desempeño de estas funciones será de manera honoraria y gratuita.

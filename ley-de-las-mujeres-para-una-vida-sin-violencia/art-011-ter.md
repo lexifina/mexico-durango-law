@@ -18,7 +18,19 @@ g) Proporcionar u ocultar, mediante el engaño, información que induzca al ejer
 h) Obligar, intimidar o amenazar a suscribir documentos, a colaborar en proyectos o adoptar decisiones en contra de su voluntad o del interés público, en función de su representación política;
 (ADICIONADO, P.O. 31 DE MAYO DE 2018)
 i) Asignar responsabilidades de género que tengan como resultado la limitación del ejercicio de la función político publica;
-(ADICIONADO, P.O. 31 DE MAYO DE 2018)
-j) Divulgar o revelar información personal y privada de las mujeres candidatas, electas, designadas o en el ejercicio de funciones político-publicas, con el objetivo de menoscabar su dignidad como seres humanos y utilizar la misma para obtener contra su voluntad la renuncia y/o licencia al cargo que ejercen o postulan; y
-(ADICIONADO, P.O. 31 DE MAYO DE 2018)
-k) Restrinjir (sic) el uso de la palabra, en las sesiones u otras reuniones y su participación en comisiones, comités y otras instancias inherentes a su cargo, conforme a la reglamentación establecida.
+(REFORMADO, P.O. 31 DE MARZO DE 2019)
+j) Divulgar o revelar información personal y privada de las mujeres candidatas, electas, designadas o en el ejercicio de funciones político-publicas, con el objetivo de menoscabar su dignidad como seres humanos y utilizar la misma para obtener contra su voluntad la renuncia y/o licencia al cargo que ejercen o postulan;
+(REFORMADO, P.O. 31 DE MARZO DE 2019)
+k) Restringir el uso de la palabra, en las sesiones u otras reuniones y su participación en comisiones, comités y otras instancias inherentes a su cargo, conforme a la reglamentación establecida.
+(ADICIONADO, P.O. 31 DE MARZO DE 2019)
+l) Impedir, por cualquier medio, asistir a la toma de protesta de su encargo, así como a las sesiones ordinarias o extraordinarias o a cualquier otra actividad que implique la toma de decisiones, impidiendo o suprimiendo el derecho a voz y voto en igualdad de condición que los hombres.
+(ADICIONADO, P.O. 31 DE MARZO DE 2019)
+m) Dañar, en cualquier forma, elementos de la precampaña o de la campaña electoral de la mujer, impidiendo que la competencia electoral se desarrolle en condiciones de Igualdad.
+(ADICIONADO, P.O. 31 DE MARZO DE 2019)
+n) Imponer, por estereotipos de género, la realización de actividades y tareas ajenas a las funciones y atribuciones de su cargo.
+(ADICIONADO, P.O. 31 DE MARZO DE 2019)
+ñ) Impedir o restringir la reincorporación de la mujer a su cargo, cuando hagan uso de una licencia justificada, incluyendo la licencia de maternidad.
+(ADICIONADO, P.O. 31 DE MARZO DE 2019)
+o) Restringir o impedir el uso de las acciones constitucionales y legales para proteger sus derechos, y/o evitar el cumplimiento de las resoluciones correspondientes; y
+(ADICIONADO, P.O. 31 DE MARZO DE 2019)
+p) Aplicar sanciones pecuniarias, descuentos arbitrarios e llegales (sic) y/o retención de salarios.
