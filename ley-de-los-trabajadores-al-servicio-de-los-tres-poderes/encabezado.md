@@ -36,5 +36,4 @@ En apoyo de la eficiencia de la actuación y de la eficacia de las resoluciones 
 Por los motivos expuestos, y muchas otras razones de órden político-social que sería prolijo incluir, esta H. LIV Legislatura del Estado expide el siguiente:
 DECRETO NUMERO 203
 LA H. LIV LEGISLATURA del ESTADO LIBRE y SOBERANO de DURANGO, a nombre del Pueblo DECRETA la siguiente:
-LEY DE LOS TRABAJADORES AL SERVICIO DE LOS TRES PODERES
-DEL ESTADO DE DURANGO
+LEY DE LOS TRABAJADORES AL SERVICIO DE LOS TRES PODERES DEL ESTADO DE DURANGO
