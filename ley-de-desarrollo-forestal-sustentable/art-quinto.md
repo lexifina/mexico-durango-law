@@ -1,0 +1,1 @@
+ARTÍCULO QUINTO.- Hasta en tanto los ayuntamientos emitan los reglamentos y bandos para regular las materias que según la Ley General de Desarrollo Forestal Sustentable son de su competencia, corresponderá al Estado aplicar esta Ley en el ámbito local, coordinándose para ello con las autoridades municipales.

@@ -1,0 +1,1 @@
+ARTÍCULO SEXTO.- Dentro del lapso de nueve meses, el Ejecutivo Estatal, solicitará al Ejecutivo Federal la celebración de los convenios de coordinación con la finalidad de asumir operativamente las atribuciones a que se refiere la presente Ley.

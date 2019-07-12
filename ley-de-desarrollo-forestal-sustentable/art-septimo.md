@@ -1,0 +1,16 @@
+ARTÍCULO SÉPTIMO.- El reglamento de esta Ley deberá expedirse en un término que no exceda a los nueve meses contados a partir de la entrada en vigor de esta Ley.
+El Ciudadano Gobernador Constitucional del Estado, dispondrá se publique, circule y observe.
+Dado en el Salón de Sesiones del Honorable Congreso del Estado, en Victoria de Durango, Dgo., a los (09) nueve días del mes de Junio del año (2004) dos mil cuatro.
+DIP. JOSÉ MA. ALCANTAR CHÁVEZ
+PRESIDENTE.
+DIP. ANDRÉS BECERRA RUIZ
+SECRETARIO.
+DIP. LAURO LÓPEZ SARIÑANA
+SECRETARIO.
+POR TANTO MANDO SE IMPRIMA, PUBLIQUE, CIRCULE Y COMUNIQUESE A QUIENES CORRESPONDA PARA SU EXACTA OBSERVANCIA.
+DADO EN EL PALACIO DEL PODER EJECUTIVO, EN VICTORIA DE DURANGO, DGO., A LOS NUEVE DIAS DEL MES DE JUNIO DEL DOS MIL CUATRO.
+EL GOBERNADOR CONSTITUCIONAL DEL ESTADO.
+LIC. ANGEL SERGIO GUERRERO MIER.
+EL SECRETARIO GENERAL DE GOBIERNO.
+LIC. JOSE MIGUEL CASTRO CARRILLO.
+N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.
