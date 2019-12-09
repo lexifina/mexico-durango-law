@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 8 DE DICIEMBRE DE 2019)
+ARTICULO 171 QUATER.- Las escuelas para madres y padres operarán bajo el esquema de promotores voluntarios, quienes estarán al frente de cada grupo de padres de familia. En esta responsabilidad se dará prioridad a estudiantes del servicio social de las áreas de Ciencias y Humanidades, profesionistas y profesores de los planteles educativos que manifiesten la voluntad de participar en la ejecución del mecanismo.
