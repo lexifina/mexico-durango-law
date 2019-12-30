@@ -1,5 +1,5 @@
 LEY DE TRÁNSITO PARA LOS MUNICIPIOS DEL ESTADO DE DURANGO
-Ley publicada en el Periódico Oficial del Gobierno Constitucional del Estado de Durango, el domingo 22 de diciembre de 1996.
+Ley publicada en el Periódico Oficial del Estado de Durango, el domingo 22 de diciembre de 1996.
 EL CIUDADANO LICENCIADO MAXIMILIANO SILERIO ESPARZA, GOBERNADOR CONSTITUCIONAL DEL ESTADO LIBRE Y SOBERANO DE DURANGO, A SUS HABITANTES, S A B E D:
 QUE LA H. LEGISLATURA DEL MISMO SE HA SERVIDO DIRIGIRME EL SIGUIENTE:
 Con fecha 19 de Noviembre del presente año, el Titular del Poder Ejecutivo envió a esta H. Legislatura del Estado iniciativa de Decreto que contiene Ley de Tránsito para los Municipios del Estado de Durango, la cual fué turnada a la Comisión de Gobernación de la cual son titulares los CC. Diputados Jesús Rene Sosa Curiel, Jesús Dávila Valero, J. Salvador Salum del Palacio, Héctor Raul Avendaño y J. Rubén Escajeda Jiménez, Presidente, Secretario y Vocales respectivamente mismos que emitieron su dictamen favorable con base en los siguientes:

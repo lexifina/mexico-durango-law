@@ -2,8 +2,8 @@
 Artículo 11 Ter. Se consideran actos de violencia política hacia las mujeres entre otros:
 (ADICIONADO, P.O. 5 DE MARZO DE 2017)
 a) Limitar sin justificación el ejercicio de sus derechos para contender en los procesos internos de sus institutos políticos, con la finalidad de que no logren acceder a una candidatura, o en los procesos interpartidarios para ocupar un cargo o cartera dentro de su instituto político;
-(ADICIONADO, P.O. 5 DE MARZO DE 2017)
-b) Proporcionar información incompleta, falsa o errónea de datos personales de las mujeres candidatas a cargo de elección popular, al Instituto Electoral y de Participación Ciudadana del Estado de Durango o de los Consejos Municipales del propio Instituto, con la finalidad de impedir el registro o anular sus candidaturas;
+(REFORMADO, P.O. 29 DE DICIEMBRE DE 2019)
+b) Proporcionar información incompleta, falsa o errónea de datos personales de las mujeres candidatas a cargo de elección popular, al Instituto Electoral y de Participación Ciudadana del Estado de Durango o de los Consejos Municipales del propio Instituto, con la finalidad de impedir el registro, anular sus candidaturas, de menoscabar los derechos político-electorales de las mujeres y la garantía del debido proceso electoral;
 (ADICIONADO, P.O. 5 DE MARZO DE 2017)
 c) Limitar, retener o retrasar, sin justificación, la entrega de recursos para el financiamiento de las campañas electorales;
 (ADICIONADO, P.O. 5 DE MARZO DE 2017)
@@ -30,7 +30,19 @@ m) Dañar, en cualquier forma, elementos de la precampaña o de la campaña elec
 n) Imponer, por estereotipos de género, la realización de actividades y tareas ajenas a las funciones y atribuciones de su cargo.
 (ADICIONADO, P.O. 31 DE MARZO DE 2019)
 ñ) Impedir o restringir la reincorporación de la mujer a su cargo, cuando hagan uso de una licencia justificada, incluyendo la licencia de maternidad.
-(ADICIONADO, P.O. 31 DE MARZO DE 2019)
-o) Restringir o impedir el uso de las acciones constitucionales y legales para proteger sus derechos, y/o evitar el cumplimiento de las resoluciones correspondientes; y
+(REFORMADO, P.O. 29 DE DICIEMBRE DE 2019)
+o) Restringir o impedir el uso de las acciones constitucionales y legales para proteger sus derechos, y/o evitar el cumplimiento de las resoluciones correspondientes;
 (ADICIONADO, P.O. 31 DE MARZO DE 2019)
 p) Aplicar sanciones pecuniarias, descuentos arbitrarios e Ilegales (sic) y/o retención de salarios.
+(ADICIONADO, P.O. 29 DE DICIEMBRE DE 2019)
+q) Incumplir las disposiciones jurídicas nacionales e internacionales que reconocen el ejercicio pleno de los derechos políticos de las mujeres;
+(ADICIONADO, P.O. 29 DE DICIEMBRE DE 2019)
+r) Suministrar a las mujeres que aspiran u ocupan un cargo de elección popular información falsa, errada o imprecisa que induzca al incorrecto ejercicio de sus atribuciones;
+(ADICIONADO, P.O. 29 DE DICIEMBRE DE 2019)
+s) Ocultar información u omitir la convocatoria de cualquier otra actividad que implique la toma de decisiones en el desarrollo de sus funciones y/o actividades;
+(ADICIONADO, P.O. 29 DE DICIEMBRE DE 2019)
+t) Establecer conductas que impliquen amenazas verbales, difamación, desprestigio, burlas, descalificación, acecho, hostigamiento, acoso sexual y/o calumnias en público o privado, por cualquier medio convencional y/o digital;
+(ADICIONADO, P.O. 29 DE DICIEMBRE DE 2019)
+u) Presionar, intimidar y/u obligar de manera directa o indirecta a la renuncia o a la solicitud de licencia de los cargos de elección popular o de la función pública según sea el caso, y
+(ADICIONADO, P.O. 29 DE DICIEMBRE DE 2019)
+v) Cualesquiera otras formas análogas que lesionen o sean susceptibles de dañar la dignidad, integridad o libertad de las mujeres en el ejercicio de un espacio público, de poder o de decisión.

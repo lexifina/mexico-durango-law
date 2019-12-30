@@ -33,3 +33,5 @@ XXVII. Simulación de pruebas;
 XXVIII. Violación a la intimidad personal o familiar; y
 (ADICIONADA, P.O. 1 DE JUNIO DE 2017)
 XXIX. La discriminación.
+(ADICIONADA, P.O. 29 DE DICIEMBRE DE 2019)
+XXX. Violación a la intimidad sexual
