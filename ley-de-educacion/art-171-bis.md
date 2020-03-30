@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 8 DE DICIEMBRE DE 2019)
+ARTICULO 171 BIS.- La Escuela para Madres y Padres será un instrumento enfocado a ofrecer a las madres y padres de familia, estrategias para atender, apoyar, comprender y dar respuesta a los cambios propios del proceso de desarrollo de sus hijos, así como promover en ellos la integración familiar, coadyuvar en la formación académica e inculcar los valores universales para una mejor cohesión social.

@@ -1,0 +1,1 @@
+ARTICULO TERCERO.- Mientras no se expidan los reglamentos, manuales y demás normatividad, relativa al funcionamiento y atribuciones de la SECyD, se seguirán aplicando los ordenamientos actualmente en vigor.

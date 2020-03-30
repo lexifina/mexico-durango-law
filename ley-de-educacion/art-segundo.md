@@ -1,0 +1,1 @@
+ARTICULO SEGUNDO.- Esta Ley abroga la Ley de Educación para el Estado de Durango expedida el 30 de Junio de 1965 y publicada en el Periódico Oficial del Estado de fecha 1º de julio de 1965, así como las demás disposiciones normativas que se le opongan.
