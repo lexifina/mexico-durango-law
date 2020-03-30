@@ -1,4 +1,0 @@
-P.O. 8 DE DICIEMBRE DE 2019.
-[N. DE E. TRANSITORIOS DEL "DECRETO No. 197.- QUE CONTIENE REFORMAS A LA LEY DE EDUCACIÓN PÚBLICA DEL ESTADO DE DURANGO, EN MATERIA DE PREVENCIÓN DEL SUICIDIO, PREVENCIÓN EN EL USO DE NUEVAS TECNOLOGÍAS, EDUCACIÓN EMOCIONAL Y EN MATERIA DE DERECHOS HUMANOS ESPECÍFICAMENTE EN EL DERECHO A LA EDUCACIÓN".]
-ARTÍCULO PRIMERO. El presente decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno del Estado de Durango.
-ARTICULO SEGUNDO. Se derogan todas las disposiciones que se opongan al presente Decreto.

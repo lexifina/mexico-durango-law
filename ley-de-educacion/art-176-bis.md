@@ -1,8 +1,0 @@
-(ADICIONADO, P.O. 7 DE DICIEMBRE DE 2017)
-ARTICULO 176 BIS.- En la planeación de los programas y proyectos para la construcción, equipamiento, mantenimiento, rehabilitación, reforzamiento, reconstrucción y habilitación de la Infraestructura Física Educativa en las escuelas públicas estatales deberán cumplirse las disposiciones de la Ley General de la Infraestructura Física Educativa. Las escuelas públicas estatales y privadas deberán contar con infraestructura física, para evitar la exposición directa al sol en las actividades cívicas, culturales, deportivas, recreativas y de esparcimiento de los educandos.
-La Secretaría establecerá acciones prioritarias para la construcción, en escuelas públicas estatales, de la infraestructura física a la que se refiere el presente artículo, en regiones o zonas donde se detecten grupos en situación de vulnerabilidad.
-(REFORMADA SU DENOMINACIÓN, P.O. 6 DE MARZO DE 2014)
-CAPÍTULO DÉCIMO TERCERO
-DE LAS INFRACCIONES Y LAS SANCIONES
-Sección 1
-De las Infracciones y las Sanciones
