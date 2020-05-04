@@ -22,3 +22,5 @@ VIII. Cuando la víctima se haya encontrado en un estado de indefensión.
 A quien cometa feminicidio se impondrá de cuarenta a sesenta años de prisión y de dos mil ochocientos ochenta a cuatro mil trecientos veinte veces la Unidad de Medida y Actualización de multa.
 (ADICIONADO [N. DE E. REFORMADO], P.O. 19 DE MARZO DE 2020)
 Si la víctima es menor de edad, adulta mayor, embarazada o con discapacidad, así como cuando el sujeto activo sea servidor público y haya cometido la conducta valiéndose de esta condición, se impondrán de cuarenta y cinco a sesenta y cinco años de prisión y multa de tres mil doscientos cuarenta a cuatro mil seiscientas ochenta veces la Unidad de Medida y Actualización.
+(ADICIONADO, P.O. 3 DE MAYO DE 2020)
+Además de las sanciones descritas en el presente artículo, el sujeto activo perderá todos los derechos con relación a la víctima, incluidos los de carácter sucesorio.
