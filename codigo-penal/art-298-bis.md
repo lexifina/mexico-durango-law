@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 29 DE MARZO DE 2020)
+Artículo 298 Bis. Al que sin causa justificada renuncie a su empleo o solicite licencia sin goce de sueldo, habiendo una resolución judicial en la que se le obligue al pago de alimentos, con el objeto de eludir el cumplimiento de las obligaciones alimentarias que la ley determina, se le impondrá pena de prisión de uno a cuatro años y multa de setenta y dos a doscientos ochenta y ocho veces la Unidad de Medida y Actualización.

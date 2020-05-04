@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 19 DE JULIO DE 2018)
+Artículo 197 BIS. Las penas señaladas en el artículo 196, se aumentarán de cuatro a diez años de prisión y multa de doscientas ochenta y ocho a setecientas veinte veces la Unidad de Medida y Actualización, si el robo se realiza sobre bienes de instituciones educativas públicas o privadas que cuenten con reconocimiento oficial, así como instituciones científicas, museos, galerías de arte, edificios de carácter religioso o monumentos históricos.

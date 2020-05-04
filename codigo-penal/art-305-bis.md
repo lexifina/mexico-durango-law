@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 31 DE MAYO DE 2018)
+Artículo 305 Bis. Comete el delito de cobranza ilegítima quien con la intención de requerir el pago de una deuda ya sea propia del deudor, o quien funja como referencia o aval, utilice cualquier medio ilícito, o efectúe actos de hostigamiento, o intimidación, o amenazas de cualquier índole, o actos de molestia al deudor, sin mediar orden emanada de autoridad competente.

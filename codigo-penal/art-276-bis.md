@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 31 DE MAYO DE 2018)
+Artículo 276 Bis. A quien posea, obtenga, ofrezca, almacene o facilite por cualquier medio fotografías, videos o imágenes seductoras o insinuantes de menores de dieciocho años o de personas que no tienen capacidad para comprender el significado del hecho, con el objeto de divulgarlas en redes sociales se le impondrán de cuatro a ocho años de prisión y multa de doscientos ochenta y ocho a quinientos setenta y seis veces la Unidad de Medida y Actualización.
+Se impondrá las mismas penas a quien reproduzca, comparta o comercialice el material a que se refiere las acciones anteriores.
