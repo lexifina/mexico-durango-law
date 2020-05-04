@@ -1,5 +1,0 @@
-(ADICIONADO, P.O. 19 DE JULIO DE 2018)
-Artículo 265 Bis. Se sancionará con una pena de cuatro a siete años de prisión, y multa de doscientos ochenta y ocho a quinientos cuatro veces la Unidad de Medida y Actualización, además del decomiso de los objetos y productos del delito; de manera oficiosa el juez decretará la prisión preventiva:
-I. A quien fabrique, almacene, distribuya o suministre bebidas alcohólicas falsificadas, entendiéndose por éstas cuya naturaleza o composición no correspondan con las que se etiquete, anuncie, expenda, suministre, o cuando no coincidan las especificaciones de su autorización o hayan sufrido tratamiento que disimule su alteración, o encubra defectos en su proceso o en la calidad sanitaria de las materia (sic) primas utilizadas;
-II. A quien fabrique, comercialice, almacene o suministre, bebidas alcohólicas que contengan una proporción mayor al 55% de alcohol etílico en volumen; y
-III. A quien venda bebidas alcohólicas adulteradas a menores de edad, a sabiendas de que su compra será para consumo de éstos; se aumentará en una mitad más la penalidad establecida.

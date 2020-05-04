@@ -1,2 +1,0 @@
-(ADICIONADO, P.O. 31 DE MAYO DE 2018)
-Artículo 212 Bis. Comete el delito de fraude familiar el que en detrimento de la sociedad conyugal o patrimonio común generado durante el matrimonio o el concubinato, oculte, ceda, transfiera o adquiera a nombre de terceros bienes, se le aplicará sanción de uno a cinco años de prisión y multa de setenta y dos a trescientos sesenta veces la Unidad de Medida y Actualización.
