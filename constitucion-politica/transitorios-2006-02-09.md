@@ -1,7 +1,0 @@
-P.O. 9 DE FEBRERO DE 2006.
-PRIMERO.- El presente decreto iniciará su vigencia el día siguiente al de su publicación en el Periódico Oficial del Gobierno Constitucional del Estado.
-SEGUNDO.- El Congreso del Estado expedirá la ley o leyes que regulen el procedimiento en las materias a que se refieren las reformas contenidas en el presente decreto y llevará a cabo las modificaciones necesarias a los ordenamientos legales que correspondan; en un plazo no mayor de ciento ochenta días, a partir de la entrada en vigor del presente decreto.
-TERCERO.- (DEROGADO, P.O. 15 DE JULIO DE 2007)
-CUARTO.- Los derechos de los ciudadanos y procedimientos de participación, relativos a plebiscito, referéndum e iniciativa popular a que se refieren los artículos 17 fracción VII, y 50 fracción V de esta Constitución, se ejercerán y aplicarán en el Estado, una vez que el Congreso expida la ley de la materia, lo cual deberá realizarse en un plazo de un año a partir de la entrada vigor del presente decreto.
-QUINTO.- Las facultades establecidas al Consejo Estatal Electoral y al Comité de Supervisión del financiamiento de los partidos políticos y agrupaciones políticas en materia de financiamiento y fiscalización, permanecerán vigentes hasta en tanto el Congreso del Estado lleve a cabo las reformas correspondientes al Código Estatal Electoral, en los tiempos establecidos en el presente decreto.
-SEXTO.- Se derogan todas las disposiciones legales que se opongan al presente decreto.
