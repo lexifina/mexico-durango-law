@@ -1,0 +1,10 @@
+LEY ORGÁNICA DEL CENTRO DE CONCILIACIÓN LABORAL DEL ESTADO DE DURANGO
+Ley publicada en el No. 92 del Periódico Oficial del Estado de Durango, el domingo 15 de noviembre de 2020.
+En diversas fechas fueron presentadas iniciativas de reformas a esta H. LXVIII Legislatura del Estado, la primera por la Diputada Sandra Lilia Amaya Rosales, integrante del Grupo Parlamentario de MORENA que contiene la LEY DEL CENTRO DE CONCILIACIÓN LABORAL EN EL ESTADO DE DURANGO, la segunda presentada por el C. Dr. José Rosas Aispuro Torres, Gobernador del Estado, que contiene la LEY QUE CREA EL CENTRO DE CONCILIACIÓN LABORAL DEL ESTADO DE DURANGO y la tercera presentada por los CC. Diputados Sonia Catalina Mercado Gallegos, Esteban Alejandro Villegas Villarreal, Alicia Guadalupe Gamboa Martínez, Gabriela Hernández López y Francisco Javier Ibarra Jáquez, integrantes del Grupo Parlamentario del Partido Revolucionario Institucional que contiene la LEY DEL CENTRO DE CONCILIACIÓN LABORAL DEL ESTADO, mismas que fueron turnadas a las Comisiones Unidas de Administración Pública, integrada por los CC. Diputados Luis Iván Gurrola Vega, Juan Carlos Maturino Manzanera, Gerardo Villarreal Solís, Cinthya Leticia Martell Nevárez y Alejandro Jurado Flores, Presidente, Secretario y vocales respectivamente y la comisión de Trabajo, Previsión y Seguridad Social, integrada por los CC. Diputados Sonia Catalina Mercado Gallegos, María Elena González Rivera, Rigoberto Quiñonez Samaniego, Alejandro Jurado Flores y Pedro Amador Castro, Presidente, Secretario y Vocales, respectivamente, los cuales emitieron su dictamen favorable con base en los siguientes:
+ANTECEDENTES
+[…]
+C O N S I D E R A N D O S
+[…]
+Con base en los anteriores Considerandos esta H. LXVIII Legislatura del Estado, expide el siguiente:
+D E C R E T O No. 396
+LA SEXAGÉSIMA OCTAVA LEGISLATURA DEL HONORABLE CONGRESO DEL ESTADO LIBRE Y SOBERANO DE DURANGO, EN EJERCICIO DE LAS FACULTADES QUE LE CONFIERE EL ARTÍCULO 82 DE LA CONSTITUCIÓN POLÍTICA LOCAL, A NOMBRE DEL PUEBLO DECRETA:
