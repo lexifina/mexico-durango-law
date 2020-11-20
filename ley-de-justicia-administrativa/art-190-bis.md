@@ -1,0 +1,6 @@
+(ADICIONADO, P.O. 19 DE NOVIEMBRE DE 2020)
+Artículo 190 Bis.- Procede el incidente de incumplimiento de suspensión, cuando a la parte que se haya otorgado la medida cautelar por la Sala de conocimiento del juicio, sostenga que su contraparte es renuente a su cumplimiento.
+Este incidente podrá hacerse valer hasta en tanto cause ejecutoria la sentencia que resuelva el juicio.
+En el acuerdo admisorio, se dará vista a las partes para que aleguen lo que a su derecho convenga, y se pedirá un informe a la autoridad a quien se impute el incumplimiento del auto relativo, que deberá rendir dentro del plazo de tres días, informe en el que se justificará el acto o la omisión que provocó el incidente.
+Vencido dicho plazo, con informe o sin él, se dictará la resolución en el plazo de cinco días. Si se resuelve que hubo incumplimiento de la suspensión otorgada, se dejarán sin efectos las actuaciones realizadas en violación a la suspensión, y se aplicará la multa que dispone el artículo 215 de esta Ley, y se comunicará al superior jerárquico de la autoridad de que se trate, la desobediencia a fin de que lo conmine al cumplimiento.
+Cuando no exista superior jerárquico, el requerimiento se hará directamente a la demandada.
