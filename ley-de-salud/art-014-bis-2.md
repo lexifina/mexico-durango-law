@@ -21,3 +21,5 @@ e) El Presidente del Colegio Médico de Durango;
 f) El titular del Consejo o en su defecto Comisión contra las Adicciones; y
 g) El titular del área de Enseñanza, Capacitación e Investigación en Salud de los Servicios de Salud de Durango.
 V. El Diputado presidente de la Comisión de Salud Publica en el Congreso del Estado, con carácter de invitado.
+(ADICIONADA, P.O. 10 DE DICIEMBRE DE 2020)
+VI. Un representante del sector empresarial, que será el Presidente del Consejo Coordinador Empresarial, con carácter de invitado.
