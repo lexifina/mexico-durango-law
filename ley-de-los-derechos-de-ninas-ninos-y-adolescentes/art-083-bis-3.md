@@ -1,2 +1,1 @@
-(ADICIONADO, P.O. 17 DE MARZO DE 2019)
-Artículo 83 Bis 3. La Junta de Gobierno, a propuesta de su Presidente o cuando menos de la tercera parte de sus miembros, podrá constituir comités o subcomités técnicos especializados para apoyar la programación estratégica y la supervisión de la marcha normal de la Secretaría Ejecutiva, atender problemas de administración y organización de los procesos productivos, así como para la selección y aplicación de los adelantos tecnológicos y uso de los demás instrumentos que permitan elevar la eficiencia.
+Artículo 83 Bis 3. (DEROGADO, P.O. 27 DE DICIEMBRE DE 2020)
