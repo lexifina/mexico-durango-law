@@ -1,0 +1,4 @@
+P.O. 24 DE DICIEMBRE DE 2020.
+[N. DE E. TRANSITORIOS DEL "DECRETO No. 478.- QUE CONTIENE REFORMAS AL ARTÍCULO 4, LA FRACCIÓN X DEL ARTÍCULO 13, LA FRACCIÓN I DEL ARTÍCULO 15, LA FRACCIÓN II DEL ARTÍCULO 21, ADICIÓN A LA FRACCIÓN XXXII AL ARTÍCULO 7 Y LA FRACCIÓN XII RECORRIÉNDOSE LA SUCESIVA DEL ARTÍCULO 28 DE LA LEY DE DESARROLLO SOCIAL PARA EL ESTADO DE DURANGO".]
+PRIMERO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno del Estado de Durango.
+SEGUNDO. Se derogan todas las disposiciones que se opongan al presente Decreto.
