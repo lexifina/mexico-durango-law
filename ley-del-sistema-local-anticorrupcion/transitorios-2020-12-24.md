@@ -1,0 +1,6 @@
+P.O. 24 DE DICIEMBRE DE 2020.
+[N. DE E. TRANSITORIOS DEL "DECRETO NO. 491.- QUE CONTIENE REFORMA AL PRIMER PÁRRAFO DEL ARTÍCULO 17 Y EL PRIMER PÁRRAFO DEL ARTÍCULO 24 DE LA LEY DEL SISTEMA LOCAL ANTICORRUPCIÓN DEL ESTADO DE DURANGO".]
+ARTÍCULO PRIMERO. El presente Decreto entrará (sic) el 1 de enero de 2021 previa publicación en el Periódico Oficial del Gobierno del Estado de Durango.
+ARTÍCULO SEGUNDO. Una vez que se publiquen en el Periódico Oficial del Gobierno del Estado de Durango los Anexos XXXV y XXXVI, que contienen las reducciones y reasignaciones en la Ley de Egresos del Estado de Durango para el ejercicio fiscal 2021 y por consecuencia las modificaciones a los tabuladores salariales correspondientes a dichos anexos que para el efecto realice la Secretaría de Finanzas y de Administración, por lo tanto la Secretaría Ejecutiva del Sistema Local Anticorrupción, deberá ajustar los honorarios de los consejeros en base a dicho tabulador salarial.
+ARTÍCULO TERCERO. Los contratos de prestación de servicios por honorarios que se celebren a partir del 1 de enero de 2021 deberán ajustarse a lo señalado en el artículo 24 del presente Decreto.
+ARTÍCULO CUARTO. Se derogan todas las disposiciones que se opongan al presente decreto.
