@@ -2,3 +2,4 @@ P.O. 26 DE NOVIEMBRE DE 2017.
 [N. DE E. TRANSITORIOS DEL "DECRETO NO. 247.- QUE CONTIENE REFORMAS A LA LEY DEL SISTEMA LOCAL ANTICORRUPCIÓN DEL ESTADO DE DURANGO, EN MATERIA DE DISCIPLINA FINANCIERA".]
 PRIMERO. El presente decreto entrará en vigor a partir de la elaboración del anteproyecto para el ejercicio fiscal del año 2018, dicho decreto será publicado en el Periódico Oficial del Gobierno del Estado de Durango.
 SEGUNDO. Se derogan todas las disposiciones legales que se opongan al presente decreto.
+(F. DE E., P.O. 3 DE ENERO DE 2021)
