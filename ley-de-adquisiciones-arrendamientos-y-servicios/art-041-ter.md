@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 4 DE JULIO DE 2021)
+ARTÍCULO 41 Ter. Se crea el Fondo de Ayuda para el Tratamiento de Cáncer Infantil que tiene como objeto costear el tratamiento médico para niñas, niños y adolescentes que no cuenten con prestación social alguna y que su condición económica les impida cubrir sus gastos. Dicho fondo se integrará con las aportaciones que al efecto realicen los proveedores de las dependencias y se sujetará a lo dispuesto en el pedido o contrato que para tal efecto se establezca.

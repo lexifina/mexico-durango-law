@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 4 DE JULIO DE 2021)
+ARTÍCULO 11 BIS. Para dar cumplimiento a lo que establece la fracción XXI del artículo anterior, la Secretaría integrará una partida presupuestal anualmente en la Ley de Egresos del Gobierno del Estado de Durango, con el fin de que el programa de mejoramiento genético animal sea permanente; dicha partida presupuestal se incrementará, en su caso, con la aportación que para tal efecto realice el gobierno federal.
