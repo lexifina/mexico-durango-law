@@ -1,0 +1,6 @@
+P.O. 26 DE SEPTIEMBRE DE 2021.
+[N. DE E. TRANSITORIOS DEL "DECRETO No. 676.- POR EL QUE SE DEROGA EL CAPÍTULO XVIII DEL TÍTULO III DENOMINADO POR SERVICIO PÚBLICO DE ILUMINACIÓN. APROBADO MEDIANTE DECRETO No. 128, Y PUBLICADO EN EL PERIÓDICO OFICIAL 19 BIS, DE FECHA 6 DE MARZO DE 1988 QUE CONTIENE (SIC) LEY DE HACIENDA DE LOS MUNICIPIOS DEL ESTADO DE DURANGO Y SE ADICIONA UNA SECCIÓN VIGÉSIMO QUINTA AL CAPÍTULO SEGUNDO DEL TÍTULO SEGUNDO, DE LA LEY DE HACIENDA PARA LOS MUNICIPIOS DEL ESTADO DE DURANGO".]
+PRIMERO. El presente decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno del Estado de Durango.
+SEGUNDO. Los municipios del Estado de Durango, en un término de quince días a partir de la publicación del presente decreto deberán adecuar sus leyes de ingresos, respecto del servicio público de iluminación.
+TERCERO. Los municipios del Estado de Durango, a fin de establecer las cuotas del servicio de alumbrado público entre los usuarios, deberá solicitar a la Comisión Federal de Electricidad, el padrón de usuarios, y la Comisión, a su vez deberá proporcionarlo a los municipios.
+CUARTO. Se derogan todas las disposiciones legales que se opongan al presente decreto.

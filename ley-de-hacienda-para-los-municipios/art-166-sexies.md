@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 26 DE SEPTIEMBRE DE 2021)
+Artículo 166 sexies. En caso de que existan predios rústicos o urbanos que no estén registrados en la Comisión Federal de Electricidad, éstos pagarán las tarifas que establezcan los municipios en sus leyes de Ingresos, mismas que serán integradas y, debidamente diferenciadas, en el estado de cuenta por concepto de impuesto predial que para tal efecto emite la Tesorería Municipal y, se deberá efectuar el pago de forma anual, independientemente de que para tal efecto se tomen como base las tarifas mensuales correspondientes.

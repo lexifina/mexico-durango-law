@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 26 DE SEPTIEMBRE DE 2021)
+Artículo 166 quater. Se entiende por Servicio de Alumbrado Público, la iluminación que el Municipio otorga a la comunidad en calles y avenidas de sectores habitacionales, comerciales e industriales, plazas, jardines y otros lugares de uso común.
+La prestación de este servicio comprende la seguridad pública que se brinda al patrimonio mínimo indispensable de subsistencia y aquellos lucrativos con la iluminación, así como la planeación estratégica, la instalación de arbotantes, la realización de las obras de instalación, ejecución, operación y mantenimiento del sistema de alumbrado, así como la aplicación de políticas para la ampliación del servicio cuando las necesidades de la comunidad lo requieran.

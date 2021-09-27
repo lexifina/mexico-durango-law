@@ -6,5 +6,9 @@ II. Participar a través de sus presidentes en el Consejo para el Desarrollo, co
 III. Definir un desarrollo económico integral en su región, diseñando esquemas específicos y planes estratégicos de promoción económica acordes con los del Estado, en el marco de las leyes y reglamentos de los municipios, del Estado y la Federación;
 IV. Mantener contacto permanente con la comunidad de su región para detectar, promover, apoyar e impulsar las propuestas, proyectos y actividades empresariales y económicas locales, regionales, nacionales y extranjeras que sean acordes con la planeación estratégica regional y estatal;
 V. Generar y aprobar su estructura y procedimientos operativos, en los términos de la reglamentación interna que cada uno de ellos elabore;
-VI. Representar al Consejo para el Desarrollo en su región e informarles de los acuerdos y actividades; y
-VII. Recibir el presupuesto que el Consejo para el Desarrollo le asigne cada año, administrarlo con eficiencia, transparencia e informar su utilización anualmente al Congreso del Estado y ante las demás instancias que la Ley prevé.
+(REFORMADA, P.O. 26 DE SEPTIEMBRE DE 2021)
+VI. Representar al CODEDUR en su región e informarles de los acuerdos y actividades; y
+(REFORMADA, P.O. 26 DE SEPTIEMBRE DE 2021)
+VII. Recibir el presupuesto que el CODEDUR le asigne cada año, administrarlo con eficiencia, transparencia, e informar su ejercicio anualmente a la Secretaría por conducto de la Dirección General del CODEDUR, al Congreso del Estado, y ante las demás instancias que la Ley prevé.
+(ADICIONADA, P.O. 26 DE SEPTIEMBRE DE 2021)
+VIII. Promover esquemas de vinculación entre el sector productivo, y las instituciones de educación superior, para la elaboración de proyectos que promuevan una economía basada en el conocimiento, en beneficio del desarrollo económico de todas las regiones económicas del Estado.

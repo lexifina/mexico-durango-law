@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 26 DE SEPTIEMBRE DE 2021)
+Artículo 166 octies. Los contribuyentes del Derecho por el Servicio Público de Iluminación que residan en zonas de ubicación geográfica clasificadas como habitacionales, comerciales e industriales dentro de los municipios del Estado de Durango; recibirán un estímulo fiscal en función del grado de beneficio que en materia de seguridad pública otorga la iluminación del sistema de alumbrado, a su patrimonio.
+Una vez aplicado el estímulo fiscal de mérito, dichos contribuyentes pagarán el Derecho por el Servicio Público de Iluminación de conformidad con las tarifas finales que para tal efecto establezcan los municipios.
