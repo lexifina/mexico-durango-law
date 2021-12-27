@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 26 DE DICIEMBRE DE 2021)
+ARTÍCULO 135 SÉPTIES. En la formulación del Programa Estatal de Educación Superior, la Secretaría deberá observar lo establecido en el Programa Nacional de Educación Superior, las propuestas de la Comisión Estatal para la Planeación de la Educación Superior del Estado de Durango y de las instancias locales de vinculación, consulta y participación social en materia de educación superior de la entidad, de acuerdo con las disposiciones que al respecto prevé la Ley General de Educación Superior.
