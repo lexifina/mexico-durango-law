@@ -19,8 +19,10 @@ XV. Falsificación o alteración y uso indebido de documentos;
 XVI. Fraude;
 XVII. Hostigamiento sexual;
 XVIII. Intimidación;
-XIX. Lesiones, que tardan en sanar menos de quince días;
-XX. Lesiones, que tarden en sanar más de quince días y menos de sesenta;
+(REFORMADA, P.O. 31 DE MARZO DE 2022)
+XIX. Lesiones, que tardan en sanar menos de quince días; con excepción de aquéllas a que hace referencia el artículo 143 de este Código.
+(REFORMADA, P.O. 31 DE MARZO DE 2022)
+XX. Lesiones, que tarden en sanar más de quince días y menos de sesenta; con excepción de aquéllas a que hace referencia el artículo 143 de este Código.
 XXI. Negación del servicio público;
 XXII. Peligro de contagio;
 XXIII. Privación de libertad con fines sexuales;
