@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 26 DE MAYO DE 2022)
+Artículo 221 Q. Los documentos que las partes ofrezcan como prueba, deberán ser exhibidos de forma legible en formato PDF a través del Sistema Digital de Juicios.
+Tratándose de documentos digitales, se deberá manifestar la naturaleza de los mismos, especificando si la reproducción digital corresponde a una copia simple, una copia certificada, o al original, y tratándose de esta última, si tiene o no firma autógrafa. Los particulares deberán hacer esta manifestación bajo protesta de decir verdad, entendiéndose que la omisión de la referida manifestación presume, en perjuicio del promovente, que el documento digitalizado corresponde a una copia simple.

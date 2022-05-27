@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 26 DE MAYO DE 2022)
+Articulo 221 R. Las pruebas documentales que ofrezcan y exhiban las partes tendrán el mismo valor probatorio que su constancia física, siempre y cuando se observen las disposiciones de la presente Ley y de los acuerdos normativos que emitan los órganos del Tribunal para asegurar la autenticidad de la información, así como de su transmisión, recepción, validación y notificación.

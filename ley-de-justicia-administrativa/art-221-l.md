@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 26 DE MAYO DE 2022)
+Artículo 221 L. En el Sistema Digital de Juicios se integrará el Expediente Electrónico, que incluirá todas las promociones, pruebas y otros anexos que presenten las partes, oficios, acuerdos, y resoluciones tanto interlocutorias como definitivas, así como las demás actuaciones que deriven de la substanciación del Juicio Digital, garantizando su seguridad, inalterabilidad, autenticidad, integridad y durabilidad, conforme a los lineamientos que expida el Tribunal.
+En los Juicios Digitales, el desahogo de la prueba testimonial, y en los casos que lo amerite la pericial, se llevará a cabo en las oficinas del Tribunal en una audiencia en la cual podrán asistir las partes.

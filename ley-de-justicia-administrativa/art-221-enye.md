@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 26 DE MAYO DE 2022)
+Artículo 221 Ñ. Los titulares de una Firma Electrónica, Clave de Acceso y Contraseña serán responsables de su uso, por lo que el acceso o recepción de las notificaciones, la consulta al Expediente Digital y el envío de información mediante la utilización de cualquiera de dichos instrumentos, les serán atribuibles y no admitirán prueba en contrario, salvo que se demuestren fallas del Sistema Digital de Juicios.
