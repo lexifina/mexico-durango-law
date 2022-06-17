@@ -7,5 +7,9 @@ IV. Fortalecer el papel de las madres y padres en la educación cívica de las n
 V. Diseñar y ejecutar estrategias y conocimientos para desarrollar el potencial de los hijos;
 VI. Concientizar sobre la importancia de las relaciones interpersonales positivas y respetuosas;
 VII. Fomentar la armonía familiar a través del conocimiento personal;
-VIII. Impulsar la actitud positiva hacia la escuela, y
-IX. Robustecer el respeto hacia los profesores por parte de los educandos.
+(REFORMADA, P.O. 16 DE JUNIO DE 2022)
+VIII. Impulsar la actitud positiva hacia la escuela,
+(REFORMADA, P.O. 16 DE JUNIO DE 2022)
+IX. Robustecer el respeto hacia los profesores por parte de los educandos, y
+(ADICIONADA, P.O. 16 DE JUNIO DE 2022)
+X. Prevenir el embarazo a temprana edad, por medio de pláticas de educación sexual.
