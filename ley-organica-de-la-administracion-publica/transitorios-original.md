@@ -15,10 +15,12 @@ El liquidador realizará lo siguiente: verificar el inventario de los bienes pro
 El liquidador actuará hasta que se concluya el proceso de liquidación el cual no podrá exceder de seis meses.
 La Secretaría de Contraloría del Estado, será la responsable de sancionar el proceso de entrega-recepción del Organismo que se extingue.
 ARTÍCULO SEXTO. Se abroga la Ley que crea el Instituto para el Desarrollo Integral del Adulto Mayor del Estado de Durango, aprobada mediante Decreto No. 548, de la LXVI Legislatura del Congreso del Estado y publicada en el Periódico Oficial del Gobierno del Estado de Durango No. 28, de 7 de abril de 2016.
-ARTÍCULO SEPTIMO. Se abroga la Ley que crea el Organismo Público Descentralizado denominado "Administración del Patrimonio de la Beneficencia Pública del Estado de Durango", aprobada mediante Decreto No. 489, de la LX Legislatura del Congreso del Estado y publicada en el Periódico Oficial del Gobierno del Estado de Durango No. 48, de 14 de junio de 1998.
-ARTÍCULO OCTAVO. Se abroga la Ley que crea la Comisión de Arbitraje Médico del Estado de Durango, aprobada mediante Decreto No. 234, de la LXV Legislatura del Congreso del Estado y publicada en el Periódico Oficial del Gobierno del Estado de Durango No. 52 BIS, de 29 de diciembre de 2011.
-ARTÍCULO NOVENO. Los procedimientos de naturaleza fiscal o las controversias judiciales derivadas de los mismos, que se hayan iniciado durante la vigencia de la Ley Orgánica de la Administración Pública del Estado de Durango abrogada mediante el presente decreto, continuarán desahogándose hasta su conclusión con las disposiciones y normas vigentes al momento de su iniciación.
-ARTÍCULO DÉCIMO. Quedarán vigentes los nombramientos realizados por la persona Titular del Poder Ejecutivo a partir del día 15 de septiembre de 2022 con base en la Ley Orgánica de la Administración Pública del Estado de Durango, que se abroga en el Artículo Segundo Transitorio del presente Decreto.
+(F. DE E., P.O. 16 DE OCTUBRE DE 2022)
+ARTÍCULO SÉPTIMO. Se abroga la Ley que crea la Comisión de Arbitraje Médico del Estado de Durango, aprobada mediante Decreto No. 234, de la LXV Legislatura del Congreso del Estado y publicada en el Periódico Oficial del Gobierno del Estado de Durango No. 52 BIS, de 29 de diciembre de 2011.
+(F. DE E., P.O. 16 DE OCTUBRE DE 2022)
+ARTÍCULO OCTAVO. Los procedimientos de naturaleza fiscal o las controversias judiciales derivadas de los mismos, que se hayan iniciado durante la vigencia de la Ley Orgánica de la Administración Pública del Estado de Durango abrogada mediante el presente decreto, continuarán desahogándose hasta su conclusión con las disposiciones y normas vigentes al momento de su iniciación.
+(F. DE E., P.O. 16 DE OCTUBRE DE 2022)
+ARTÍCULO NOVENO. Quedarán vigentes los nombramientos realizados por la persona Titular del Poder Ejecutivo a partir del día 15 de septiembre de 2022 con base en la Ley Orgánica de la Administración Pública del Estado de Durango, que se abroga en el Artículo Segundo Transitorio del presente Decreto.
 El Ciudadano Gobernador del Estado, sancionará, promulgará y dispondrá se publique, circule y observe.
 Dado en el Salón de Sesiones del Honorable Congreso del Estado, en Victoria de Durango, Dgo., a los (21) veintiún días del mes de septiembre del año (2022) dos mil veintidós.
 DIP. BERNABE AGUILAR CARRILLO
