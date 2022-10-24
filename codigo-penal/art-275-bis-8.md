@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 23 DE OCTUBRE DE 2022)
+Artículo 275 Bis 8. A quien se apropie, retenga, oculte o sustraiga a un animal doméstico o animal de asistencia sin el consentimiento de su propietario, se le impondrán de uno a tres años de prisión y multa de setenta y dos a doscientas dieciséis veces la Unidad de Medida y Actualización. Dichas penas se aumentarán hasta en una mitad si el sujeto activo exige al dueño del animal doméstico o animal de asistencia, un pago económico o en especie a cambio de su restitución.
