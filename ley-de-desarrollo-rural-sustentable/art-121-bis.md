@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 20 DE NOVIEMBRE DE 2022)
+ARTÍCULO 121 BIS.- Para fomentar e incentivar la producción florícola, se procurará impulsar la tecnificación y equipamiento de empresas florícolas en los diferentes procesos de producción, poscosecha, empaque, transporte, capacitación y difusión, impulsar el desarrollo del mercado local con precios competitivos para el productor y fomentar la exportación de productos florícolas.
