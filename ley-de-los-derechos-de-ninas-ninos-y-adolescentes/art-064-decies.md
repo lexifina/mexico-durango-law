@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 22 DE DICIEMBRE DE 2022)
+Artículo 64 Decies. La representación en suplencia no podrá ser decidida de oficio por la Procuraduría de Protección, esta representación deberá ser decretada por el órgano administrativo o jurisdiccional competente que conozca del asunto en el que estén involucrados o participando las niñas, niños y/o adolescentes, y sólo en los casos que estrictamente resulte imprescindible su aplicación, hasta entonces, la Procuraduría de Protección referida puede ejercer únicamente la representación coadyuvante.

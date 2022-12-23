@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 22 DE DICIEMBRE DE 2022)
+Artículo 64 Quárter. La representación coadyuvante es aquella ejercida por la Procuraduría de Protección, de manera constante y oficiosa a la par del ejercicio de la representación originaria. Esta funcionará como un acompañamiento que se da, de forma proporcional y acorde a las necesidades de la niña, niño y/o adolescente. Por ello, el trabajo de la representación coadyuvante puede significar diferentes tipos de acción, que pueden consistir en asesorar, apoyar, informar y ejecutar.

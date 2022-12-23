@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 22 DE DICIEMBRE DE 2022)
+Artículo 64 Sexies. La representación coadyuvante estará basada en el principio de la menor separación de la familia y en el principio de proporcionalidad en la intervención del Estado en las decisiones que tome aquella cuando hace posible, a través de la representación originaria, el desarrollo de los derechos de la niña, niño o adolescente. El Estado, coadyuvará a la protección de los derechos de la niña, niño o adolescente, en la medida que proporcionalmente resulte necesaria.

@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 22 DE DICIEMBRE DE 2022)
+Artículo 64 Septies. Cuando el proceso se inicie por algunos de los padres o quienes ejerzan la patria potestad de niñas, niños y/o adolescentes, en contra del otro, la labor de la Procuraduría de Protección debe estar guiada por la imparcialidad, teniendo a la niña, niño o adolescente como eje de su representación y con independencia de las acciones de representación que puedan desarrollar sus padres.

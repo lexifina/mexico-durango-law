@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 22 DE DICIEMBRE DE 2022)
+Artículo 64 Octies. Las niñas, niños y adolescentes que no cuenten con una representación originaria por desconocer el paradero de sus familiares y que no exista alguien que pueda tener la tutela sobre ellos mismos o cuando por otra causa así lo determine el órgano jurisdiccional o autoridad administrativa competente, con base en el interés superior de la niñez, no podrán carecer por tal motivo de una representación, en estos casos la representación en suplencia corresponderá a la Procuraduría de Protección.
