@@ -1,6 +1,7 @@
 TRANSITORIOS
 PRIMERO.- El presente decreto entrará en vigor el 1 de septiembre de 2019 para los 39 Ayuntamientos del Estado, previa publicación en el Periódico Oficial del Gobierno del Estado.
-SEGUNDO.- El presente decreto entrará en vigor el día 1 de enero de 2023 para los Poderes Ejecutivo, Legislativo y Judicial así como para los órganos constitucionales autónomos, previa publicación en el Periódico Oficial del Gobierno del Estado.
+(REFORMADO, P.O. 22 DE DICIEMBRE DE 2022)
+SEGUNDO.- El presente decreto entrará en vigor el día 1 de enero de 2025 para los Poderes Ejecutivo, Legislativo y Judicial así como para los órganos constitucionales autónomos, previa publicación en el Periódico Oficial del Gobierno del Estado
 TERCERO.- Los entes públicos, a través del área que corresponda, dictará las medidas reglamentarias y administrativas que correspondan en un plazo que no exceda de 90 días a partir de la entrada en vigor que corresponda.
 CUARTO.- Se derogan todas las disposiciones legales que contravengan lo dispuesto por el presente Decreto.
 El Ciudadano Gobernador del Estado, sancionará promulgará y dispondrá se publique, circule y observe.
@@ -17,3 +18,4 @@ EL C. GOBERNADOR DEL ESTADO DE DURANGO
 DR. JOSÉ ROSAS AISPURO TORRES
 EL SECRETARIO GENERAL DE GOBIERNO
 ARQ. ADRIÁN ALANÍS QUIÑONES
+[N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCULOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.]
