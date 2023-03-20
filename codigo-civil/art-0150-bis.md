@@ -4,8 +4,8 @@ ART. 150 BIS.- También es requisito para contraer matrimonio, la asistencia pre
 En dicho taller se informará cuando menos sobre:
 (ADICIONADA, P.O. 21 DE ABRIL DE 2013)
 I. Los requisitos para contraer matrimonio.
-(ADICIONADA, P.O. 21 DE ABRIL DE 2013)
-II. Los efectos del matrimonio con relación a los cónyuges y a sus hijos.
+(REFORMADA, P.O. 19 DE MARZO DE 2023)
+II. Los efectos del matrimonio con relación a los cónyuges y a sus hijas e hijos.
 (ADICIONADA, P.O. 21 DE ABRIL DE 2013)
 III. Los regímenes patrimoniales del matrimonio.
 (ADICIONADA, P.O. 21 DE ABRIL DE 2013)
