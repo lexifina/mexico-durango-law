@@ -13,5 +13,8 @@ X. Proponer medidas para coordinar acciones en el marco del Sistema Estatal de S
 XI. Proponer acciones tendientes a la integración funcional del Sistema Estatal de Salud;
 XII. Rendir informe, sobre las acciones que realizan ante situaciones de contingencia;
 XIII. Opinar sobre los proyectos de convenios de coordinación para la prestación de servicios de atención médica de las instituciones públicas del Sistema Estatal de Salud;
-XIV. Establecer comisiones y grupos de trabajo que sean necesarios para el estudio de temas que contribuyan al correcto desempeño del Consejo Estatal de Salud y apoyen la consecución de sus objetivos; y
-XV. Las demás que sean necesarias para el cumplimiento de su objetivo.
+(REFORMADA, P.O. 30 DE MARZO DE 2023)
+XIV. Establecer comisiones y grupos de trabajo que sean necesarios para el estudio de temas que contribuyan al correcto desempeño del Consejo Estatal de Salud y apoyen la consecución de sus objetivos;
+(ADICIONADA, P.O. 30 DE MARZO DE 2023)
+XV. Formular estrategias que promuevan el respeto a la integridad y dignidad de las personas servidoras públicas del Sistema Estatal de Salud, ante situaciones de emergencia sanitaria y;
+XVI. Las demás que sean necesarias para el cumplimiento de su objetivo.
