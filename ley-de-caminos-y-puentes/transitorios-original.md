@@ -1,6 +1,9 @@
 TRANSITORIOS
 ARTÍCULO PRIMERO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno del Estado de Durango.
-ARTÍCULO SEGUNDO. Se derogan todas las disposiciones legales que se opongan al contenido del presente.
+(REFORMADO, P.O. 30 DE MARZO DE 2023)
+ARTÍCULO SEGUNDO.- Se derogan todas las disposiciones que se opongan al presente Decreto.
+(ADICIONADO, P.O. 30 DE MARZO DE 2023)
+ARTÍCULO TERCERO.- Se abroga la Ley de Caminos del Estado de Durango, expedida mediante Decreto número 46 de la 38 Legislatura, publicada en el Periódico Oficial de fecha 09 de marzo de 1930, así como sus reformas y adiciones. Los procedimientos, concesiones u otros instrumentos legales formalizados con base en dicha Ley continuaran con fundamento en la misma, hasta su conclusión o modificación convenida.
 El Ciudadano Gobernador Constitucional del Estado, sancionará, promulgará y dispondrá se publique, circule y observe.
 Dado en el Salón de Sesiones del Honorable Congreso del Estado, en Victoria de Durango, Dgo., a los (29) veintinueve días del mes de octubre del año (2014) dos mil catorce.
 JOSÉ ÁNGEL BELTRAN FÉLIX
@@ -15,3 +18,4 @@ EL C. GOBERNADOR CONSTITUCIONAL DEL ESTADO
 C.P. JORGE HERRARA CALDERA
 EL SECRETARIO GENERAL DE GOBIERNO
 LIC. MIGUEL ANGEL OLVERA ESCALERA
+[N. DE E. A CONTINUACIÓN SE TRANSCRIBEN LOS ARTÍCUOS TRANSITORIOS DE LOS DECRETOS DE REFORMAS AL PRESENTE ORDENAMIENTO.]
