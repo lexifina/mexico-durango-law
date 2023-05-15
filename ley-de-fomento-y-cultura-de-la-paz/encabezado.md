@@ -1,0 +1,10 @@
+LEY DE FOMENTO Y CULTURA DE LA PAZ PARA EL ESTADO DE DURANGO
+Ley publicada en el No. 39 del Periódico Oficial del Estado de Durango, el domingo 14 de mayo de 2023.
+EL CIUDADANO DOCTOR ESTEBAN ALEJANDRO VILLEGAS VILLARREAL, GOBERNADOR DEL ESTADO LIBRE Y SOBERANO DE DURANGO, A SUS HABITANTES,S A B E D:
+QUE LA H. LEGISLATURA DEL MISMO SE HA SERVIDO DIRIGIRME EL SIGUIENTE:
+En diversas fechas, fueron presentadas a esta Legislatura del Estado, dos Iniciativas de Decreto, la primera presentada por los CC. Diputados José Ricardo López Pescador, Ricardo Fidel Pacheco Rodríguez, Gabriela Hernández López, Susy Carolina Torrecillas Salazar, Sandra Luz Reyes Rodríguez, Luis Enrique Benítez Ojeda, Rosa María Triana Martínez y Sughey Adriana Torres Rodríguez, Integrantes del Grupo Parlamentario del Partido Revolucionario Institucional de la LXIX Legislatura, que contiene EXPEDICIÓN DE LA LEY DE FOMENTO Y CULTURA DE LA PAZ PARA EL ESTADO DE DURANGO y la segunda presentada por los CC. Diputados Alejandro Mojica Narváez, Joel Corral Alcántar, Gerardo Galaviz Martínez, Silvia Patricia Jiménez Delgado, Verónica Pérez Herrera y Fernando Rocha Amaro Integrantes del Grupo Parlamentario del Partido Acción Nacional de la LXIX Legislatura, por la que se EXPIDE LA LEY DE LA CULTURA DE LA PAZ DEL ESTADO DE DURANGO; mismas que fueron turnadas a la Comisión de Gobernación integrada por los CC. Diputados Gabriela Hernández López, Mario Alfonso Delgado Mendoza, Gerardo Galaviz Martínez, J. Carmen Fernández Padilla, Marisol Carrillo Quiroga y Luis Enrique Benítez Ojeda; Presidenta, Secretario y Vocales respectivamente, los cuales emitieron su dictamen favorable con base en los siguientes:
+C O N S I D E R A N D O S
+[…]
+Con base en los anteriores considerandos, esta H. LXIX Legislatura del Estado, expide el siguiente:
+D E C R E T O No. 366
+LA SEXAGÉSIMA NOVENA LEGISLATURA DEL HONORABLE CONGRESO DEL ESTADO LIBRE Y SOBERANO DE DURANGO, EN EJERCICIO DE LAS FACULTADES QUE LE CONFIEREN LOS ARTÍCULOS 82 Y 182 DE LA CONSTITUCIÓN POLÍTICA LOCAL A NOMBRE DEL PUEBLO, D E C R E T A:
