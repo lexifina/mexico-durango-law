@@ -1,0 +1,2 @@
+(ADICIONADA, P.O. 18 DE JUNIO DE 2023)
+ART. 717 BIS.- Cualquier miembro de una familia tiene el derecho de constituir con bienes de su propiedad un patrimonio para sí y en beneficio de su familia, entendiéndose por familia para los efectos de este capítulo, al grupo de personas que habitan una misma casa y que se encuentren unidos por una relación conyugal o concubinato o lazos de parentesco consanguíneo o civil; o aquellos a los que legalmente se tenga la obligación de dar alimentos.
