@@ -1,0 +1,3 @@
+(ADICIONADO [N. DE E. REFORMADO Y REUBICADO, ANTES ARTÍCULO 95], P.O. 27 DE JULIO DE 2023)
+ARTÍCULO 95 BIS.- Se requiere autorización que otorgará el Estado a través de la Subsecretaría para prestar el servicio de transporte público especializado en su modalidad de personal, escolar, turístico y ejecutivo privado, así como el servicio público de carga en todas sus modalidades.
+Los vehículos con los que se pretenda prestar el servicio de transporte especializado deberán cumplir con los lineamientos y características técnicas y de operación que para cada modalidad determine la Subsecretaría a través de la normatividad correspondiente.

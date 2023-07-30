@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 27 DE JULIO DE 2023)
+ARTÍCULO 95 QUINQUIES.- Las instituciones educativas, las personas físicas o morales cuyo objeto social sea preponderantemente la prestación del servicio de transporte escolar a estudiantes, se les podrá otorgar la autorización correspondiente, siempre y cuando medie solicitud previa. La autorización se regulará por los reglamentos, acuerdos, circulares, manuales de especificaciones técnicas y condiciones de operación que determine la Subsecretaría.
