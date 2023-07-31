@@ -5,7 +5,8 @@ ARTÍCULO 32 BIS
 3. El convenio de candidatura común deberá contener:
 I. Nombre de los partidos que la conforman, así como el tipo de elección de que se trate;
 II. Emblema común de los partidos que lo conforman y el color o colores con que se participa;
-III. Nombre, apellidos, edad, lugar de nacimiento, domicilio, clave de la credencial para votar y el consentimiento por escrito del candidato;
+(REFORMADA, P.O. 31 DE JULIO DE 2023)
+III. Nombre, apellidos, edad, lugar de nacimiento, domicilio, clave de la credencial para votar, CURP y el consentimiento por escrito de quien encabece la candidatura;
 IV. La aprobación del convenio por parte de los órganos directivos correspondientes de cada uno de los partidos políticos postulantes del candidato común;
 V. La forma en que se acreditarán los votos a cada uno de los partidos políticos que postulan la candidatura común, para efectos de la conservación del registro y para el otorgamiento del financiamiento público, y
 VI. Indicar las aportaciones en porcentajes de cada uno de los partidos para gastos de la campaña, sujetándose a los límites de contratación de los medios de comunicación distintos a radio y televisión y a los topes de gastos de campaña determinados por el Consejo General.
