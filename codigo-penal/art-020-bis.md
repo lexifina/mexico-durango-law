@@ -9,7 +9,7 @@ V. Allanamiento de morada;
 VI. Amenazas;
 VII. Bigamia;
 VIII. Cometidos en el ejercicio de la profesión, responsabilidad profesional y técnica;
-IX. Contra la seguridad de la subsistencia familiar;
+IX. (DEROGADA, P.O. 2 DE NOVIEMBRE DE 2023)
 X. Chantaje;
 XI. Daños, establecidos en los artículos 206 y 208 de este Código;
 XII. Despojo;
