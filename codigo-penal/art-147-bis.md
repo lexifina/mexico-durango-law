@@ -26,5 +26,5 @@ A quien cometa feminicidio se impondrá de cuarenta a sesenta años de prisión 
 Si la víctima es menor de edad, adulta mayor, embarazada o con discapacidad, así como cuando el sujeto activo sea servidor público y haya cometido la conducta valiéndose de esta condición, se impondrán de cuarenta y cinco a sesenta y cinco años de prisión y multa de tres mil doscientos cuarenta a cuatro mil seiscientas ochenta veces la Unidad de Medida y Actualización.
 (ADICIONADO, P.O. 17 DE JUNIO DE 2021)
 En caso de que no se acredite el feminicidio, se aplicarán las reglas del homicidio.
-(REFORMADO, P.O. 17 DE JUNIO DE 2021)
-Además de las sanciones descritas en el presente artículo, el sujeto activo perderá todos los derechos con relación a la víctima, incluídos los de carácter sucesorio.
+(REFORMADO, P.O. 2 DE NOVIEMBRE DE 2023)
+Además de las sanciones descritas en el presente artículo, el sujeto activo perderá todos los derechos con relación a la víctima y los hijos en común que hubiere entre esta y aquél, incluidos los de carácter sucesorio, garantizando el interés superior de la niñez en términos de lo previsto por la Ley General de los Derechos de Niñas, Niños y Adolescentes.

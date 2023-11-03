@@ -12,4 +12,7 @@ IX. Promover en las instituciones de educación superior de la entidad la celebr
 X. Ejecutar acciones para fomentar la cultura de la evaluación y acreditación entre las instituciones de educación superior de la entidad;
 XI. Establecer los lineamientos para la expedición de títulos profesionales;
 XII. Suministrar información para actualizar el sistema de información de la educación superior, de consulta pública, de apoyo a los procesos de planeación y evaluación a que se refiere el artículo 61 de la Ley General de Educación Superior, y
-XIII. Las demás que con tal carácter establezcan esta Ley, la Ley General de Educación Superior y otras disposiciones aplicables.
+(ADICIONADA, P.O. 2 DE NOVIEMBRE DE 2023)
+XIII. Formular y desarrollar estrategias para la detección, prevención, atención y seguimiento de cualquier expresión de violencia o maltrato escolar en contra de los educandos, y
+(REFORMADA, P.O. 2 DE NOVIEMBRE DE 2023)
+XIV. Las demás que con tal carácter establezcan esta Ley, la Ley General de Educación Superior, y otras disposiciones aplicables.
