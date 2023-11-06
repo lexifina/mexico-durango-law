@@ -7,6 +7,8 @@ IV. Fomentar la colaboración entre las instituciones de educación superior de 
 V. Proponer y diseñar estrategias para hacer efectiva la obligatoriedad de la educación superior en la entidad, así como la reorientación de la oferta educativa, conforme a las necesidades del desarrollo estatal y regional, bajo criterios de inclusión y equidad;
 VI. Proponer criterios generales para la creación de nuevas instituciones públicas y programas educativos apegándose a las políticas de educación superior;
 VII. Realizar y solicitar estudios de factibilidad y de pertinencia de la apertura de nuevas instituciones públicas, planes y programas de estudios, así como nuevas modalidades y opciones educativas;
+(ADICIONADO, P.O. 5 DE NOVIEMBRE DE 2023)
+Dichas modalidades serán adecuadas para atender las necesidades tanto sociales como psicológicas de los educandos, a fin de mejorar constantemente los sistemas de enseñanzas hacia el alumnado.
 VIII. Realizar los estudios necesarios que permitan identificar las necesidades de docencia, investigación, extensión y difusión de la cultura en la entidad;
 IX. Proponer estrategias para el fortalecimiento del financiamiento de las instituciones públicas de educación superior de la entidad, así como para la transparencia y la rendición de cuentas;
 X. Participar, con el Consejo Nacional para la Coordinación de la Educación Superior, en el diseño de las directrices, estrategias y programas para el desarrollo de la educación superior en los términos de las disposiciones aplicables;
