@@ -1,5 +1,2 @@
-(ADICIONADO, P.O. 16 DE JULIO DE 2017)
-Artículo 334 Bis. Al particular que, en su carácter de contratista, permisionario, asignatario, titular de una concesión de prestación de un servicio público de explotación, aprovechamiento o uso de bienes del dominio del Estado, con la finalidad de obtener un beneficio para sí o para un tercero:
-I.- Genere y utilice información falsa o alterada, respecto de los rendimientos o beneficios que obtenga, y,
-II.- Cuando estando legalmente obligado a entregar a una autoridad información sobre los rendimientos o beneficios que obtenga, la oculte.
-Al que cometa el delito a que se refiere el presente artículo, se le impondrán de tres a nueve años de prisión y multa de cien a trescientas veces la Unidad de Medida y Actualización
+(REFORMADO, P.O. 24 DE MARZO DE 2024)
+Artículo 334 Bis. Cuando las conductas previstas en el artículo anterior produzcan beneficios económicos al propio servidor público, a su cónyuge, descendientes o ascendientes, parientes por consanguinidad o afinidad hasta el cuarto grado, concubina o concubinario, adoptante o adoptado o cualquier tercero con el que tenga vínculos afectivos, económicos o de dependencia administrativa directa, socios o sociedades de las que el servidor público o las personas antes referidas formen parte, se le aumentarán las penas en una tercera parte.
