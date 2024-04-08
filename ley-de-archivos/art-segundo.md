@@ -1,0 +1,1 @@
+ARTÍCULO SEGUNDO. Se abroga la Ley de Archivos para el Estado de Durango, aprobada mediante Decreto 63, emitido por la LXVIII legislatura, y publicado en el Periódico Oficial del Gobierno del Estado de Durango No. 103 Bis de fecha 27 de diciembre de 2018.

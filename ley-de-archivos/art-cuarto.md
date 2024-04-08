@@ -1,0 +1,1 @@
+ARTÍCULO CUARTO. Los asuntos y trámites de la Dirección de Archivo Histórico del Estado de Durango dependiente de la Secretaría General de Gobierno, serán transferidos en los términos del artículo anterior y serán resueltos por el Organismo Público Descentralizado Denominado Archivo General del Estado.

@@ -1,0 +1,1 @@
+ARTÍCULO SÉPTIMO. Dentro de los ciento veinte días hábiles siguientes a la entrada en vigor del presente Decreto, se deberá emitir el Reglamento Interior del Organismo Público Descentralizado denominado Archivo General del Estado.
