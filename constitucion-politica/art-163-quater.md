@@ -9,7 +9,8 @@ II. La persona titular de la Auditoría Superior del Estado;
 (REFORMADA, P.O. 24 DE MAYO DE 2022)
 III. La persona titular de la Fiscalía Especializada en Combate a la Corrupción;
 IV. El responsable del control interno del Poder Ejecutivo;
-V. Un representante del Consejo de la Judicatura del Poder Judicial del Estado;
+(REFORMADA, P.O. 21 DE NOVIEMBRE DE 2024)
+V. Un representante del Tribunal de Disciplina Judicial;
 (REFORMADA, P.O. 24 DE MAYO DE 2022)
 VI. La Comisionada o Comisionado Presidente del Instituto Duranguense de Acceso a la Información y Protección de Datos Personales, y
 (REFORMADA, P.O. 24 DE MAYO DE 2022)
