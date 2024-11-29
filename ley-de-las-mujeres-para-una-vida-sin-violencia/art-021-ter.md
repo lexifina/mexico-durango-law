@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 28 DE NOVIEMBRE DE 2024)
+Artículo 21 Ter. Las disposiciones de dicho instrumento serán obligatorias para todas las personas servidoras públicas y su inobservancia o violación será causa de responsabilidad administrativa, sin menoscabo de las demás de carácter civil o penal en que incurran; siendo obligación de sus titulares, divulgar su contenido entre sus colaboradores y áreas administrativas.
