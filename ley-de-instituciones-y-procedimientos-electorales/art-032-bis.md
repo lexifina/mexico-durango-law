@@ -1,6 +1,7 @@
 (ADICIONADO, P.O. 15 DE FEBRERO DE 2015)
 ARTÍCULO 32 BIS
-1. Los partidos políticos, tendrán derecho a postular candidaturas comunes para la elección de Gobernador, diputados de mayoría y planillas de ayuntamientos. Los partidos políticos que postulen candidato común deberán suscribir un convenio firmado por sus representantes y dirigentes, el que deberán presentar para su registro ante el Consejo General, hasta cinco días antes del inicio del periodo de registro de candidatos de la elección de que se trate.
+(REFORMADO, P.O. 26 DE DICIEMBRE DE 2024)
+1. Los partidos políticos, tendrán derecho a postular candidaturas comunes para la elección de gubernatura, diputaciones de mayoría y planillas de ayuntamientos. Los partidos políticos que postulen candidatura común deberán suscribir un convenio firmado por sus representantes y dirigentes, el que deberán presentar para su registro ante el Consejo General, hasta diez días antes del inicio del periodo de registro de candidaturas de la elección de que se trate.
 2. Los partidos políticos que postulen candidato a Gobernador en común deberán también suscribir convenio de candidatura común para los cargos a integrar los ayuntamientos en todos los municipios que conforman la geografía electoral del Estado.
 3. El convenio de candidatura común deberá contener:
 I. Nombre de los partidos que la conforman, así como el tipo de elección de que se trate;

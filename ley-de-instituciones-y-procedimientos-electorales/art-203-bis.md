@@ -1,0 +1,6 @@
+(ADICIONADO, P.O. 26 DE DICIEMBRE DE 2024)
+ARTÍCULO 203 BIS
+1. Las candidaturas a personas juzgadoras podrán erogar recursos propios con la finalidad de cubrir gastos personales, viáticos y traslados dentro del ámbito territorial que corresponda a su candidatura en los periodos de campaña respectivos.
+2. Los topes de gastos personales, por cada persona candidata al Poder Judicial, serán determinados por el Consejo General del Instituto en función del tipo de elección que se trate y no podrán ser superiores al límite de aportaciones individuales que pueden realizar las personas candidatas independientes a diputaciones.
+3. Queda prohibido que las personas candidatas, por sí o por interpósita persona, hagan erogaciones de recursos públicos o privados para promocionar sus candidaturas. El Instituto, en coordinación con la Unidad Técnica de Fiscalización del Instituto Nacional Electoral, vigilará el cumplimiento a esta disposición.
+4. Para los efectos de este artículo, se estará a lo dispuesto en la Ley General, así como los reglamentos, acuerdos, lineamientos y demás disposiciones que emita el Instituto Nacional Electoral en materia de fiscalización de las candidaturas a personas juzgadoras.

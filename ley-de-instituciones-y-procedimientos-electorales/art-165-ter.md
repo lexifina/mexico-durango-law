@@ -1,0 +1,28 @@
+(ADICIONADO, P.O. 26 DE DICIEMBRE DE 2024)
+ARTÍCULO 165 TER.-
+1. Es derecho de la ciudadanía participar en igualdad de condiciones en los procesos de evaluación y selección de candidaturas para todos los cargos de elección del Poder Judicial. Dichos procesos serán públicos, abiertos, transparentes, inclusivos, accesibles y garantizarán la participación de todas las personas interesadas que cumplan con los requisitos, condiciones y términos que determine la Constitución Local.
+2. Cada Poder del Estado, a través de los mecanismos que al efecto determinen, instalará un Comité de Evaluación dentro de los quince días naturales posteriores a la publicación de la convocatoria general que emita el Congreso del Estado, así mismo los Poderes se notificarán oficial y oportunamente la integración de sus Comités.
+Los Comités de Evaluación de cada Poder, estarán conformados por tres personas de reconocido prestigio en la actividad jurídicaquienes (sic) deberán reunir al menos los siguientes requisitos, observando la paridad de género:
+a) Contar con ciudadanía mexicana, en pleno goce de sus derechos civiles y políticos;
+b) No haber sido condenada por delito alguno, salvo que hubiese sido de carácter no intencional o imprudencial;
+c) Contar con título de licenciatura en derecho expedido legalmente, con antigüedad mínima de cinco años, y práctica profesional de por lo menos cinco años en el ejercicio de la actividad jurídica, y
+d) No desempeñar ni haber desempeñado cargo de dirección nacional o estatal en algún partido político en los últimos tres años anteriores a la designación.
+Dentro de los cinco días posteriores, dichos Comités integrarán el Comité Estatal de Evaluación, el cual emitirá las reglas para el funcionamiento de éstos, los criterios de evaluación, y los elementos necesariospara (sic) llevar a cabo el análisis sobre la idoneidad de las personas aspirantes que hayan solicitado su registro, privilegiando el uso de las tecnologías de la información para la recepción de solicitudes, evaluación y selección de postulaciones.
+3. Los Comités publicarán dentro de los quince días posteriores a su integración las convocatorias para participar en el proceso de evaluación y selección de postulaciones, que contendrán lo siguiente:
+a) La información pertinente contenida en la convocatoria general que publique el Congreso del Estado;
+b) Las etapas, fechas y plazos aplicables al proceso de inscripción, evaluación yselección (sic) de postulaciones por el Comité;
+c) Los mecanismos, formatos y otros medios de contacto para inscribirse en la convocatoria, así como para el seguimiento del proceso;
+d) La metodología de evaluación de idoneidad de las personas aspirantes para el desempeño de los cargos de elección que correspondan por cada cargo y, en sucaso (sic), materia de especialización, la cual incluirá, por lo menos, su perfil curricular, así como sus antecedentes profesionales y académicos, entre otros que determine el Comité Estatal para valorar su honestidad y buena fama pública.
+4. Concluido el plazo establecido para la inscripción, los Comités integrarán la lista de las personas aspirantes que hayan concurrido a la convocatoria y reúnan los requisitos de elegibilidad a través de la documentación que presenten.
+Las personas aspirantes que hayan sido rechazadas podrán impugnar esa decisión ante el Tribunal Electoral del Estado, dentro del plazo y conforme al procedimiento que determine la Ley y los acuerdos generales en la materia.
+Las impugnaciones serán resueltas de la forma más expedita posible dentro de un plazo que permita a las y los aspirantes a participar en la evaluación de idoneidad en caso de que su impugnación resulte fundada.
+5. Acreditados los requisitos de las personas aspirantes, los Comités procederán a calificar su idoneidad para desempeñar el cargo, tomando en consideración lo establecido en el inciso d), del numeral 3, del presente artículo.
+6. La participación simultánea de una persona aspirante en dos o más convocatorias emitidas por los Poderes del Estado por el mismo cargo, no afectará el resultado de la evaluación.
+7. Los Comités seleccionarán los perfiles mejor evaluados en una proporción de dos personas para los cargos en disputa, y remitirán los listados correspondientes a la autoridad que represente a cada Poder del Estado para que determinen su conformidad de acuerdo a lo siguiente:
+a) El Poder Ejecutivo, por conducto de la persona titular de la gubernatura del Estado;
+b) El Poder Legislativo, por conducto del pleno del Congreso del Estado, mediante mayoría simple, y
+c) El Poder Judicial, por conducto del pleno del Tribunal Superior de Justicia, pormayoría (sic) del cincuenta más uno de los integrantes presentes en la sesión.
+8. Una vez que los Poderes determinen su conformidad sobre los listados de las personas idóneas, serán devueltos a los Comités respectivos para que efectúen las postulaciones que correspondan, atendiendo, en su caso a su especialización por materia y observando la paridad de género, conforme a lo siguiente:
+a) Para la elección de magistraturas integrantes del Poder Judicial, los listados podrán contemplar hasta dos personas para cada cargo, y
+b) Para la elección de personas juezas integrantes del Poder Judicial, los listadospodrán (sic) contemplar hasta dos personas para cada cargo.
+Realizado lo anterior, los listados resultantes, serán remitidos al Congreso del Estado a más tardar el primero de febrero del año de la elección que corresponda, en los términos establecidos en la convocatoria general, acompañadas de los expedientes que acrediten la elegibilidad e idoneidad de las personas postuladas, vencido el plazo establecido no se podrán remitir con posterioridad.
