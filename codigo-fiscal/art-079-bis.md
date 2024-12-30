@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 29 DE DICIEMBRE DE 2024)
+ARTICULO 79 BIS.- Las autoridades fiscales podrán requerir a las autoridades de los distintos órdenes de gobierno, órganos constitucionalmente autónomos y demás autoridades, les proporcionen la información y documentación necesaria para el cumplimiento de sus atribuciones, quienes deberán atender los requerimientos que se les formulen dentro de los plazos que al efecto se les establezcan.
+En caso de no atender los requerimientos, las autoridades fiscales podrán emplear como medida de apremio una multa de 10 a 1000 UMA, según corresponda, por cada requerimiento no atendido, y solicitar a la autoridad competente se proceda por desobediencia a un mandato legítimo de autoridad competente.

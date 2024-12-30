@@ -1,0 +1,6 @@
+P.O. 29 DE DICIEMBRE DE 2024.
+[N. DE E. TRANSITORIOS DEL "DECRETO No. 139 QUE CONTIENE REFORMAS, ADICIONES Y DEROGACIONES A DIVERSOS DISPOSITIVOS DEL CÓDIGO FISCAL DEL ESTADO DE DURANGO".]
+PRIMERO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno del Estado de Durango.
+SEGUNDO. Se concede un plazo de 365 días naturales a partir de la entrada en vigor del presente Decreto para que la Secretaría de Finanzas y de Administración, implemente el Buzón Tributario y expida las reglas de carácter general relativas al funcionamiento del mismo, atendiendo a la disponibilidad presupuestal. Hasta en tanto no se implemente el Buzón Tributario, todas las notificaciones, promociones y demás actuaciones, trámites, actos y resoluciones, se continuarán realizando en los términos previstos en el Código Fiscal del Estado de Durango vigente al momento de la entrada en vigor del presente Decreto.
+TERCERO. Se concede un plazo de 180 días naturales a partir de la entrada en vigor del presente Decreto para que la Secretaría de Finanzas y de Administración, expida las reglas de carácter general relativas a la emisión de la opinión de cumplimiento de obligaciones fiscales a que se refiere el artículo 50 BIS.
+CUARTO. Se derogan todas las disposiciones que se opongan al presente Decreto.
