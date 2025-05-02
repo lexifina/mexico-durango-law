@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 1 DE MAYO DE 2025)
+Artículo 218 Bis. Se equipara al delito de usura, y se sancionará con la pena establecida en el artículo 217 Bis a la persona intermediaria que con el ánimo de obtener un lucro indebido, y aprovechándose del estado de necesidad económica de la persona, compre productos frutícolas, agrícolas y/o florícolas a un menor precio del establecido por los productores, con la finalidad de revenderlos a un precio mayor.
