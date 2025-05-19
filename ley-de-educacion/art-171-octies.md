@@ -5,7 +5,8 @@ II. El papel de las madres y padres en la educación cívica de las niñas, niñ
 III. Apoyar el crecimiento de las hijas e hijos para su mejor bienestar;
 IV. La instrucción de las hijas e hijos como elemento esencial del desarrollo humano;
 V. La socialización en la niña, niño y el adolescente;
-VI. La responsabilidad de las madres y padres de familia en el cuidado de las hijas e hijos;
+(REFORMADA, P.O. 18 DE MAYO DE 2025)
+VI. La responsabilidad de las madres y padres de familia en el cuidado de las hijas e hijos, implementando cursos de prevención del acoso escolar, prevención del suicidio, protección civil y primeros auxilios en las escuelas públicas y privadas de todos los niveles educativos;
 VII. Saber comprender a las hijas e hijos en las diferentes etapas de su desarrollo;
 VIII. La disciplina como elemento en la formación de las hijas e hijos;
 IX. La obligación de proveer lo indispensable a las hijas e hijos para su desarrollo;
