@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 18 DE MAYO DE 2025)
+ARTICULO 106 BIS.- Los modelos y planes de estudio de la educación de (sic) media superior, tendrán a su vez un enfoque preparatorio para los alumnos que durante esta educación cumplen la mayoría de edad. Tales programas de estudio y modelos educativos, tendrán en su contenido, la enseñanza de derechos laborales y derechos humanos, así como los aspectos básicos del sistema tributario de nuestro país.

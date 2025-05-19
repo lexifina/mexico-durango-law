@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 18 DE MAYO DE 2025)
+ARTICULO 106 TER.- En las instalaciones educativas de nivel medio superior, se garantizará la promoción de los derechos humanos, así mismo se impartirá la enseñanza de los derechos laborales y los aspectos básicos del sistema tributario. Esto con la finalidad de que los alumnos que alcanzan la mayoría de edad, estén preparados para las situaciones cotidianas de la vida adulta.
