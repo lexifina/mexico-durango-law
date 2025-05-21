@@ -3,3 +3,5 @@ ARTÍCULO 25 BIS.- Los tres Poderes del Estado y sus dependencias; los Órganos 
 En las adquisiciones de papel a que se refiere el párrafo anterior, éste deberá contener un mínimo de cincuenta por ciento de fibras de material reciclado, o de fibras naturales no derivadas de la madera, o de materias primas provenientes de aprovechamientos forestales manejados de manera sustentable en el territorio nacional, que se encuentren certificados por las autoridades competentes, o de sus combinaciones y elaborados en procesos con blanqueado libre de cloro.
 (REFORMADO [N. DE E. ADICIONADO], P.O. 4 DE JUNIO DE 2023)
 Para el caso de pilas y baterías eléctricas, las adquisiciones se harán de manera exclusiva sobre dispositivos recargables, salvo cuando por estricta necesidad y por las características requeridas no exista dicha posibilidad en el mercado.
+(ADICIONADO, P.O. 20 DE MAYO DE 2025)
+Tratándose de vehículos automotores, se procurará, dependiendo de la viabilidad financiera, la adquisición o arrendamiento de aquellas unidades que garanticen cero o bajas emisiones de gases contaminantes.
