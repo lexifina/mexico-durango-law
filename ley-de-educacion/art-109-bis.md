@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 5 DE OCTUBRE DE 2025)
+ARTICULO 109 BIS.- La modalidad de formación dual es una estrategia educativa, donde se conjugan las competencias desarrolladas en los espacios educativos, con las adquiridas en la práctica profesional, fortaleciendo y creando aptitudes del estudiante dual que le incrementarán las posibilidades de inserción laboral.
+Esta modalidad tiene por objetivo lograr una mayor pertinencia y empleabilidad de los egresados de educación media superior, al fortalecer sus competencias profesionales adquiridas en los planteles educativos, con una formación específica, acorde a las necesidades de las empresas de los sectores productivos de la región.
