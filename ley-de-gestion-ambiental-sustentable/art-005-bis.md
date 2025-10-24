@@ -9,8 +9,8 @@ II. Prevenir y controlar actividades que generen riesgo, tales como las producid
 III. (DEROGADA, P.O. 26 DE DICIEMBRE DE 2021)
 (ADICIONADA, P.O. 17 DE NOVIEMBRE DE 2019)
 IV. Verificar el cumplimiento de las Normas Oficiales Mexicanas, sobre la materia;
-(ADICIONADA, P.O. 17 DE NOVIEMBRE DE 2019)
-V. Prevenir y controlar la contaminación generada por la emisión de ruido, vibraciones, energía térmica, lumínica, radiaciones electromagnéticas no ionizantes y olores perjudiciales al equilibrio ecológico o al ambiente, provenientes de fuentes fijas que funcionen como establecimientos industriales, comerciales o de servicios, así como, en su caso, de fuentes móviles que conforme a lo establecido en la Ley General, no sean de competencia federal;
+(REFORMADA, P.O. 23 DE OCTUBRE DE 2025)
+V. Prevenir y controlar la contaminación generada por la emisión de ruido, vibraciones, energía térmica, luz intrusa, radiaciones electromagnéticas no ionizantes y olores perjudiciales al equilibrio ecológico o al ambiente, provenientes de fuentes fijas que funcionen como establecimientos industriales, comerciales o de servicios, así como, en su caso, de fuentes móviles que, conforme a lo establecido en la Ley General, no sean de competencia federal;
 (ADICIONADA, P.O. 17 DE NOVIEMBRE DE 2019)
 VI. Prevenir y controlar la contaminación generada por el aprovechamiento de las sustancias no reservadas a la Federación, que constituyan depósitos de naturaleza similar a los componentes de los terrenos, tales como rocas o productos de su descomposición que sólo puedan utilizarse para la fabricación de materiales para la construcción u ornamento de obras;
 (ADICIONADA, P.O. 17 DE NOVIEMBRE DE 2019)
