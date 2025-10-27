@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 26 DE OCTUBRE DE 2025)
+Artículo 60 BIS 6. En cumplimiento de lo establecido en la Ley General, el Tribunal Superior de Justicia del Estado de Durango suministrará, intercambiará, sistematizarán, consultará, analizará y actualizará, la información que se genere sobre el incumplimiento de las obligaciones alimentarias, en los términos precisados en dicho cuerpo normativo.
+La Procuraduría de Protección de Niñas, Niños y Adolescentes del Estado de Durango, tendrá acceso a las bases de datos del Registro Nacional de Obligaciones Alimentarias, en los términos precisados en la Ley General.
