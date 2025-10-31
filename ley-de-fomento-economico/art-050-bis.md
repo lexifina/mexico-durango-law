@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 30 DE OCTUBRE DE 2025)
+ARTÍCULO 50 BIS.
+La Secretaría de Desarrollo Económico, en el ámbito de su competencia, implementará acciones de Emprendimiento Profesional, al menos en un programa o componente de emprendimiento juvenil por ejercicio fiscal, con fundamento en el artículo 19 Bis de esta Ley.
+Para efectos de esta Ley, se entiende por Emprendimiento Profesional a la actividad económica formal por cuenta propia que realiza una persona física sin relación de subordinación, de manera individual o en asociación, consistente en la prestación independiente de servicios profesionales acordes a su formación y, en su caso, a los requisitos de habilitación legal aplicables, a través de despacho, consultorio, estudio o figura análoga, con cumplimiento fiscal y regulatorio, y con vocación de crecimiento susceptible de generar empleo en el corto o mediano plazo.
