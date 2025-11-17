@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 16 DE NOVIEMBRE DE 2025)
+Artículo 362 Ter. A quien distribuya o suministre agua potable a través de pipa u otro medio de almacenamiento, sin contar con el permiso de distribución o la evaluación o autorización correspondiente, expedidos por la autoridad competente, con la finalidad de obtener un beneficio económico, se le impondrán de dos a seis años de prisión y de ciento cuarenta y cuatro a cuatrocientos treinta y dos veces la unidad de medida y actualización.

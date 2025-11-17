@@ -1,0 +1,4 @@
+P.O. 16 DE NOVIEMBRE DE 2025.
+[N. DE E. TRANSITORIOS DEL "DECRETO 239 QUE CONTIENE REFORMAS Y ADICIONES A LA LEY DE IGUALDAD ENTRE MUJERES Y HOMBRES DEL ESTADO DE DURANGO, A LA LEY DE DERECHOS DE LAS JEFAS DE FAMILIA DEL ESTADO DE DURANGO Y A LA LEY DE LAS MUJERES PARA UNA VIDA SIN VIOLENCIA, EN MATERIA DE IGUALDAD SUSTANTIVA".]
+PRIMERO.- El presente decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno del Estado de Durango.
+SEGUNDO.- Se derogan todas las disposiciones que se opongan al presente Decreto.

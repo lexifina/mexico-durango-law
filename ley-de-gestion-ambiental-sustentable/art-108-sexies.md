@@ -3,4 +3,4 @@ ARTÍCULO 108 SEXIES. Las personas físicas o morales procuraran utilizar, entre
 I. Vidrio
 II. Botellas Retornables mayores a 1.5 L
 III. Latas
-IV. Tetrapack
+IV. (DEROGADA, P.O. 16 DE NOVIEMBRE DE 2025)
