@@ -3,7 +3,10 @@ Artículo 20 Sexies. Las órdenes de protección administrativas, además de las
 I. El traslado de las víctimas a donde se requiera, cuantas veces sea necesario en las diferentes diligencias para garantizar su seguridad y protección;
 II. Custodia personal y o domiciliaria a las víctimas, que estará a cargo de los cuerpos policiacos adscritos a la Fiscalía General del Estado. En caso de que no exista disponibilidad podrá apoyarse en las instituciones de seguridad pública de los tres órdenes de gobierno.
 Esta medida se aplicará bajo la más estricta responsabilidad del Ministerio Público;
-III. Proporcionar a las mujeres, o las niñas, en situación de violencia y en su caso a sus hijas e hijos o personas que dependan de la víctima, alojamiento temporal en espacios seguros tales como casas de emergencia, refugios y albergues que garanticen su seguridad y dignidad, en términos de las disposiciones aplicables de esta ley;
+(REFORMADO [N. DE E. ESTE PÁRRAFO], P.O. 16 DE NOVIEMBRE DE 2025)
+III. Proporcionar a las mujeres, o las niñas, en situación de violencia y en su caso a sus hijas e hijos o personas que dependan de la víctima, alojamiento temporal en espacios seguros tales como casas de emergencia, refugios y albergues que garanticen su seguridad y dignidad, en términos de las disposiciones aplicables de esta ley.
+(ADICIONADO, P.O. 16 DE NOVIEMBRE DE 2025)
+Asimismo, las mujeres víctimas de violencia en situación de migración, así como sus hijas e hijos, podrán acceder a dichos espacios mientras se resuelve su situación migratoria, recibiendo atención médica, asistencia legal y apoyo psicológico, de conformidad con los estándares de derechos humanos, independientemente de su condición migratoria.
 IV. Proporcionar los recursos económicos para garantizar su seguridad personal, transporte, alimentos, comunicación, mudanza y los trámites oficiales que requiera entre otros;
 V. Canalizar y trasladar sin demora alguna a las mujeres, o las niñas, en situación de violencia sexual a las instituciones que integran el sistema nacional de salud para que provean gratuitamente y de manera inmediata los servicios de:
 a) Aplicación de antirretrovirales de profilaxis post-exposición;
