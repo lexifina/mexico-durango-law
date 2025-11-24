@@ -1,0 +1,2 @@
+(ADICIONADO, P.O. 23 DE NOVIEMBRE DE 2025)
+Artículo 300 Ter. El Ministerio Público, bajo su más estricta responsabilidad, ordenará, fundada y motivadamente, la aplicación de las medidas de protección idóneas cuando lo estime necesario; así mimo (sic) solicitará las medidas precautorias que considere pertinentes para salvaguardar la integridad física o psíquica de la misma y solicitará las órdenes de protección que establece la Ley General de Acceso de las Mujeres a una Vida Libre de Violencia.
