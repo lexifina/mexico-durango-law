@@ -1,5 +1,5 @@
-(ADICIONADO CON EL ARTÍCULO QUE LO INTEGRA, P.O. 29 DE DICIEMBRE DE 2019)
-CAPÍTULO II BIS (SIC)
+(REFORMADA SU NUMERACIÓN, P.O. 23 DE NOVIEMBRE DE 2025)
+CAPÍTULO V
 VIOLACIÓN A LA INTIMIDAD SEXUAL
 (REFORMADO PRIMER PÁRRAFO, P.O. 19 DE MAYO DE 2022)
 Artículo 182 Ter. Comete delito de violación a la intimidad sexual quien, por cualquier medio, difunda, exponga, divulgue, almacene, comparta, distribuya, compile, comercie, solicite, haga circular, oferte o publique, o amenace con difundir, imágenes, audios o videos de contenido real, manipulado y/o alterado de una persona desnuda parcial o totalmente o cualquier contenido erótico o sexual, ya sea impreso, grabado o digital, sin el consentimiento de la víctima, o que haya sido obtenido sin consentimiento o sin autorización, bajo engaño o manipulación.
