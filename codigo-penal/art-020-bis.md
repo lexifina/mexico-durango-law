@@ -1,5 +1,6 @@
-(ADICIONADO, P.O. 6 DE MAYO DE 2014)
-Artículo 20 Bis. Delitos que se investigan por querella:
+(REFORMADO PRIMER PÁRRAFO, P.O. 23 DE NOVIEMBRE DE 2025)
+Artículo 20 Bis. Delitos que se investigan por querella.
+(ADICIONADO [N. DE E. CON SUS FRACCIONES], P.O. 6 DE MAYO DE 2014)
 Es necesaria la querella y sin ella no podrá procederse contra los responsables, cuando se trate de los siguientes delitos:
 I. Abandono, negación y práctica indebida del servicio médico;
 II. Abuso de confianza;
@@ -37,3 +38,5 @@ XXVIII. Violación a la intimidad personal o familiar; y
 XXIX. La discriminación.
 (ADICIONADA, P.O. 29 DE DICIEMBRE DE 2019)
 XXX. Violación a la intimidad sexual
+(ADICIONADA, P.O. 23 DE NOVIEMBRE DE 2025)
+XXXI. Acecho previsto en el artículo 175 TER y 175 TER 2.
