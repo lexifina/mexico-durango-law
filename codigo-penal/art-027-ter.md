@@ -1,0 +1,8 @@
+(ADICIONADO, P.O. 30 DE NOVIEMBRE DE 2025)
+Artículo 27 Ter. Los programas de prevención del delito a que se refiere el artículo anterior, para poder ser valorados favorablemente por el órgano jurisdiccional deberán cumplir los siguientes requisitos:
+I. Identificarán las actividades en que pueden ser cometidos los delitos que deben ser prevenidos;
+II. Adoptarán protocolos o procedimientos que concreten el proceso de formación de la voluntad de la persona jurídica, de adopción de decisiones y de ejecución de las mismas con relación a aquéllos, todo esto para prevenir el delito;
+III. Dispondrán de modelos de gestión de los recursos financieros adecuados para impedir la comisión de los delitos que deben ser prevenidos, así como compromisos de los órganos directivos o de administración para destinar recursos a la prevención de delitos;
+IV. Impondrán la obligación de informar de posibles riesgos e incumplimientos al oficial de cumplimiento u organismo encargado de vigilar el funcionamiento y observancia del programa preventivo del delito e implementarán canales de denuncia idóneos para ello;
+V. Establecerán un sistema disciplinario que sancione adecuadamente el incumplimiento de las medidas de prevención que contemple el programa preventivo del delito, y
+VI. Realizarán una verificación periódica del programa preventivo del delito y de su eventual adecuación cuando se pongan de manifiesto infracciones relevantes de sus disposiciones, o cuando se produzcan cambios en la organización, en la estructura de control, en la actividad desarrollada o en la legislación que los hagan necesarios.

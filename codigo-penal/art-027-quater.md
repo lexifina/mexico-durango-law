@@ -1,0 +1,7 @@
+(ADICIONADO, P.O. 30 DE NOVIEMBRE DE 2025)
+Artículo 27 Quáter. Sólo podrán considerarse circunstancias atenuantes de la responsabilidad penal de las personas jurídicas, cuando con posterioridad a la comisión del delito y a través de sus representantes legales hayan realizado las siguientes acciones:
+I. Haber procedido, antes de conocer que el procedimiento judicial se dirige contra ella, a aceptar su responsabilidad ante las autoridades investigadoras;
+II. Haber colaborado en la investigación del hecho aportando medios de convicción, en cualquier momento del proceso, que fueran nuevas y decisivas para esclarecer la responsabilidad penal en relación a los hechos;
+III. Haber procedido en cualquier momento desde la comisión del hecho y con anterioridad al dictado del auto de apertura a juicio, a reparar o disminuir el daño causado por el delito, y
+IV. Haber establecido, antes del auto de apertura a juicio, medidas eficaces que, en beneficio de un adecuado control organizacional, tengan por objeto prevenir y descubrir los delitos que en el futuro pudieran cometerse con los medios o bajo la cobertura de la persona jurídica.
+Quedan exceptuados de la responsabilidad de la persona jurídica, las instituciones estatales, pero cuando aquélla utilice a éstas últimas para cometer un delito será sancionada por el delito o delitos cometidos. Lo anterior también será aplicable a los fundadores, administradores o representantes que se aprovechen de alguna institución estatal para eludir alguna responsabilidad penal.
