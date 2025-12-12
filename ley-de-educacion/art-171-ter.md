@@ -9,7 +9,11 @@ VI. Concientizar sobre la importancia de las relaciones interpersonales positiva
 VII. Fomentar la armonía familiar a través del conocimiento personal;
 (REFORMADA, P.O. 16 DE JUNIO DE 2022)
 VIII. Impulsar la actitud positiva hacia la escuela,
-(REFORMADA, P.O. 16 DE JUNIO DE 2022)
-IX. Robustecer el respeto hacia los profesores por parte de los educandos, y
-(ADICIONADA, P.O. 16 DE JUNIO DE 2022)
-X. Prevenir el embarazo a temprana edad, por medio de pláticas de educación sexual.
+(REFORMADA, P.O. 11 DE DICIEMBRE DE 2025)
+IX. Robustecer el respeto hacia los profesores por parte de los educandos;
+(REFORMADA, P.O. 11 DE DICIEMBRE DE 2025)
+X. Prevenir el embarazo a temprana edad, por medio de pláticas de educación sexual;
+(ADICIONADA, P.O. 11 DE DICIEMBRE DE 2025)
+XI. Incentivar la paternidad responsable, entendida como la participación constante y consciente de la figura masculina en los procesos educativo (sic) de sus hijas e hijos, y
+(ADICIONADA, P.O. 11 DE DICIEMBRE DE 2025)
+XII. La (sic) demás que sean necesarias para cumplir con los objetivos de la presente ley, así como las que se consideren pertinentes por las Escuelas para Madres y Padres.

@@ -13,5 +13,3 @@ IX. La obligación de proveer lo indispensable a las hijas e hijos para su desar
 X. La importancia de las relaciones interpersonales positivas y respetuosas;
 XI. La actitud positiva hacia la escuela, y
 XII. El respeto hacia las profesoras y profesores por parte de los educandos.
-Sección 2
-De las Asociaciones de Padres de Familia
