@@ -11,7 +11,6 @@ III. La persona titular de la Fiscalía Especializada en Combate a la Corrupció
 IV. El responsable del control interno del Poder Ejecutivo;
 (REFORMADA, P.O. 21 DE NOVIEMBRE DE 2024)
 V. Un representante del Tribunal de Disciplina Judicial;
-(REFORMADA, P.O. 24 DE MAYO DE 2022)
-VI. La Comisionada o Comisionado Presidente del Instituto Duranguense de Acceso a la Información y Protección de Datos Personales, y
+VI. (DEROGADA, P.O. 11 DE DICIEMBRE DE 2025)
 (REFORMADA, P.O. 24 DE MAYO DE 2022)
 VII. La Presidenta o Presidente del Tribunal de Justicia Administrativa.
