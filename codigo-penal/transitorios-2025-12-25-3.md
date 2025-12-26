@@ -1,0 +1,6 @@
+P.O. 25 DE DICIEMBRE DE 2025.
+[N. DE E. TRANSITORIOS DEL "DECRETO 363 POR EL QUE SE REFORMA EL ARTÍCULO 328 BIS, DEL CÓDIGO PENAL DEL ESTADO LIBRE Y SOBERANO DE DURANGO, EN MATERIA DE COMBATE A LA EXTORSIÓN".]
+PRIMERO. El presente decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno del Estado de Durango.
+SEGUNDO. Las disposiciones relativas a los delitos de extorsión previstas en el Código Penal del Estado Libre y Soberano de Durango seguirán aplicándose por los hechos realizados durante su vigencia; los delitos que se cometan a partir del 28 de noviembre de 2025 se regirán por el Decreto por el que se expide la Ley General para Prevenir, Sancionar los delitos en materia de extorsión reglamentaria de la fracción XXI del artículo 73 de la Constitución de los Estados Unidos Mexicanos. Asimismo, dichos preceptos seguirán aplicándose a las personas procesadas o sentenciadas por el delito de extorsión, sus modalidades, agravantes y sanciones.
+TERCERO. Los procedimientos penales en materia de extorsión, iniciados antes de la entrada en vigor del presente Decreto, seguirán tramitándose hasta su conclusión conforme a las disposiciones aplicables antes de la vigencia del mismo.
+CUARTO. Se derogan todas las disposiciones que se opongan al presente Decreto.
