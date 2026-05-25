@@ -1,0 +1,3 @@
+(ADICIONADO, P.O. 24 DE MAYO DE 2026)
+ARTÍCULO 66 QUATER. El Gobierno del Estado, a través de la Secretaría, tomará en cuenta las estrategias de gestión territorial determinadas en los paisajes bioculturales para la planeación del territorio y la implementación de otros mecanismos de conservación, en aquellas acciones que se lleven a cabo dentro de las superficies comprendidas en los certificados de paisajes bioculturales.
+Asimismo, los paisajes bioculturales, por conducto de sus órganos de representación, podrán fungir como representantes de la colectividad ante las instancias del Gobierno del Estado y los diversos órganos de consulta existentes, de conformidad con la reglamentación aplicable.
