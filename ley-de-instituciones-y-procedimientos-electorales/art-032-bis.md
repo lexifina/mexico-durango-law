@@ -5,9 +5,10 @@ ARTÍCULO 32 BIS
 2. Los partidos políticos que postulen candidato a Gobernador en común deberán también suscribir convenio de candidatura común para los cargos a integrar los ayuntamientos en todos los municipios que conforman la geografía electoral del Estado.
 3. El convenio de candidatura común deberá contener:
 I. Nombre de los partidos que la conforman, así como el tipo de elección de que se trate;
-II. Emblema común de los partidos que lo conforman y el color o colores con que se participa;
-(REFORMADA, P.O. 31 DE JULIO DE 2023)
-III. Nombre, apellidos, edad, lugar de nacimiento, domicilio, clave de la credencial para votar, CURP y el consentimiento por escrito de quien encabece la candidatura;
+(REFORMADA, P.O. 2 DE JUNIO DE 2026)
+II. El emblema, así como los colores con que participaran los partidos que la conforman, el cual deberá contener el logo de los mismos;
+(REFORMADA, P.O. 2 DE JUNIO DE 2026)
+III. Nombre, apellidos, edad, lugar de nacimiento, domicilio, clave de la credencial para votar, CURP, consentimiento por escrito de quien encabece la candidatura, así como el siglado al que pertenecerá cada candidatura, únicamente para efectos de determinar la fracción partidaria a la que pertenecerán las personas electas;
 IV. La aprobación del convenio por parte de los órganos directivos correspondientes de cada uno de los partidos políticos postulantes del candidato común;
 V. La forma en que se acreditarán los votos a cada uno de los partidos políticos que postulan la candidatura común, para efectos de la conservación del registro y para el otorgamiento del financiamiento público, y
 VI. Indicar las aportaciones en porcentajes de cada uno de los partidos para gastos de la campaña, sujetándose a los límites de contratación de los medios de comunicación distintos a radio y televisión y a los topes de gastos de campaña determinados por el Consejo General.
