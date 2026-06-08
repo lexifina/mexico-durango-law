@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 7 DE JUNIO DE 2026)
+ARTICULO 176 QUÁTER.- Las asociaciones podrán participar mediante aportaciones voluntarias en numerario, trabajo o especie para el centro educativo, en coadyuvancia con el bienestar del alumnado, sin que dichas aportaciones se entiendan como contraprestación del servicio educativo, conforme a lo establecido en la fracción IV del artículo 7 de la Ley General de Educación.
+Asimismo, podrán conocer, proponer y participar en las acciones educativas y de prevención que realicen las autoridades para que los educandos conozcan y detecten acciones u omisiones que representen acoso escolar o la posible comisión de hechos delictivos que les puedan perjudicar.
+Podrán también proponer y ejecutar medidas para alcanzar los objetivos anteriores e informar a las autoridades sobre circunstancias que afecten el adecuado desarrollo del alumnado.

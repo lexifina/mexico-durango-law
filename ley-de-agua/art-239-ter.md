@@ -1,0 +1,8 @@
+(ADICIONADO CON LOS ARTÍCULOS QUE LO INTEGRAN, P.O. 7 DE JUNIO DE 2026)
+CAPÍTULO VII
+DE LA COSECHA DE AGUA DE LLUVIA EN EL ESTADO DE DURANGO
+(ADICIONADO, P.O. 7 DE JUNIO DE 2026)
+Artículo 239 Ter.- El presente capítulo es de orden público, interés social y de observancia general en el territorio del Estado de Durango y tiene por objeto:
+I. Regular, promover, organizar e incentivar la cosecha de agua de lluvia, su potabilización para el consumo humano y uso directo en actividades rurales, urbanas, comerciales, industriales y de cualquier otro uso en el Estado de Durango, con el fin de consolidar y fortalecer las políticas, estrategias, programas y acciones gubernamentales y de participación de la población para la gestión sustentable e integral de los recursos hídricos y la prestación de los servicios públicos de agua potable, drenaje y alcantarillado, así como el tratamiento y reúso de aguas residuales;
+II. Establecer los principios para garantizar la participación consciente de los sectores público, privado, social, ejidos, comunidades, barrios, pueblos y las y los habitantes del Estado de Durango en la conservación, preservación, rescate, rehabilitación y ampliación de los ecosistemas y, por consiguiente, en el equilibrio ambiental y del ciclo hidrológico en el territorio del Estado de Durango, y
+III. Profundizar la conciencia de las y los habitantes del Estado de Durango sobre la urgente necesidad de construir una Cultura del Agua para garantizar el equilibrio ambiental en el Estado y su Imprescindible participación ciudadana para contribuir a mejorar la salud y la protección civil de la población.

@@ -1,0 +1,6 @@
+P.O. 7 DE JUNIO DE 2026.
+[N. DE E. TRANSITORIOS DEL "DECRETO 410 POR EL QUE SE REFORMAN Y ADICIONAN DIVERSAS DISPOSICIONES DE LA LEY DE AGUA PARA EL ESTADO DE DURANGO".]
+PRIMERO. El presente Decreto entrará en vigor el día siguiente al de (sic) publicación en el Periódico Oficial del Gobierno del Estado de Durango.
+SEGUNDO. El Ejecutivo del Estado, a través de la Secretaría de Recursos Naturales y Medio Ambiente, deberá de emitir la política pública en materia de captación de agua de lluvia que refiere la fracción I del artículo 4° de Ley de Agua para el Estado de Durango, dentro del término de 90 días luego de la entrada en vigor del presente Decreto. Esta política pública deberá de ser revisada anualmente por la Secretaría de Recursos Naturales y Medio Ambiente, con el fin de que este constantemente actualizada en pro de la población de Durango y de los recursos naturales con los que cuenta el Estado.
+TERCERO. Con la entrada en vigor del presente Decreto la Comisión del Agua del Estado deberá de desarrollar el Padrón de Cosechadores de Agua de Lluvia del Estado, de conformidad con la política en materia de captación de agua de lluvia que establezca el Ejecutivo, en términos de Ley de Agua para el Estado de Durango.
+CUARTO. Se derogan todas las disposiciones que se opongan al presente Decreto.
