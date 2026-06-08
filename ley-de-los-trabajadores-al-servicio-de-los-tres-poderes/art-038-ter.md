@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 7 DE JUNIO DE 2026)
+Artículo 38o TER.- Las mujeres y personas menstruantes trabajadoras a quienes se les haya diagnosticado endometriosis severa, o dismenorrea primaria o secundaria en grado incapacitante, dispondrán de dos días de permiso cada mes con goce de sueldo para ausentarse de su centro de trabajo.
+Para tal efecto, deberán presentar en el área correspondiente de su centro laboral el certificado médico que lo acredite, mismo que será emitido por la persona especialista en ginecología de alguna Institución Pública de Salud.
+Dicho certificado tendrá una vigencia de seis meses a partir de su expedición, al término del cual deberá realizarse una nueva valoración médica para confirmar el diagnóstico; mismo que en ningún momento podrá ser considerado como enfermedad profesional o riesgo de trabajo.
