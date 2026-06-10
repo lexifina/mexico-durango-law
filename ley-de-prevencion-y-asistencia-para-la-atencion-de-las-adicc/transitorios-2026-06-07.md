@@ -1,0 +1,14 @@
+P.O. 7 DE JUNIO DE 2026.
+[N. DE E. TRANSITORIOS DEL "DECRETO 409 POR EL QUE SE EXPIDE LA LEY DE SALUD MENTAL Y PREVENCIÓN DE ADICCIONES DEL ESTADO DE DURANGO".]
+PRIMERO: El presente Decreto entra en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno del Estado de Durango.
+SEGUNDO: A partir de la entrada en vigor de la presente Ley, la Comisión Estatal de Salud Mental y Adicciones de Durango, como órgano desconcentrado de la Secretaría de Salud, asumirá de manera progresiva las funciones, atribuciones y responsabilidades en materia de salud mental y adicciones que actualmente corresponden al Instituto de Salud Mental, y a la Comisión Estatal contra las Adicciones.
+TERCERO: La referencia que se haga en la normatividad existente y vigente del Estado al Instituto de Salud Mental de Durango y la Comisión Estatal Contra las Adicciones, deberá ser atribuida a la Comisión Estatal de Salud Mental y Adicciones de Durango.
+CUARTO: Las erogaciones que se generen con motivo de la entrada en vigor del presente Decreto, deberán hacerse con el presupuesto aprobado para el desarrollo de programas que se ejecutan en la actualidad por el Instituto de Salud Mental de Durango y la Comisión Estatal Contra las Adicciones del Estado de Durango.
+QUINTO: Los recursos materiales con que en la actualidad cuenten las áreas que se extinguen, deberán ser transferidos a la Comisión Estatal de Salud Mental y Adicciones como órgano desconcentrado, para su debido funcionamiento.
+SEXTO: Los asuntos administrativos que se encuentren pendientes de resolución por el Instituto de Salud Mental y de la Comisión Estatal Contra las Adicciones, deben continuar su trámite y ser atendidos por la Comisión Estatal de Salud Mental y Adicciones.
+SÉPTIMO: El personal adscrito al Instituto de Salud Mental y la Comisión Estatal Contra las Adicciones, podrá ser removido a la Comisión Estatal de Salud Mental y Adicciones conforme a su profesionalización para que desempeñe las actividades propias de la comisión, conservando los derechos laborales que haya obtenido.
+OCTAVO: La Secretaria de Salud del Estado de Durango, deberá instalar el Consejo Estatal de Salud Mental y Adicciones en un plazo no mayor a 90 días naturales contados a partir de la entrada en vigor de la Ley.
+NOVENO: Se abroga la Ley de Salud Mental para el Estado de Durango y la Ley de Prevención y Asistencia para la Atención de las Adicciones del Estado de Durango.
+DÉCIMO: Dentro de los ciento ochenta días hábiles siguientes a la entrada en vigor del presente Decreto, se deberá emitir el Reglamento Interior del órgano desconcentrado denominado Comisión Estatal de Salud Mental y Adicciones de Durango.
+El Reglamento de esta Ley regulará la organización y el funcionamiento del Consejo, así como las atribuciones de sus integrantes y demás aspectos necesarios para el cumplimiento de su objeto.
+DÉCIMO PRIMERO: Se derogan todas las disposiciones que se opongan al presente Decreto.
