@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 26 DE SEPTIEMBRE DE 2021)
+ARTÍCULO 44 BIS 1.
+La Secretaría, proporcionará a las empresas nacionales o extranjeras que soliciten su apoyo para instalarse en el Estado, un listado de fabricantes locales de maquinaria, equipo u otros insumos, a efecto de que los tomen en consideración para la compra de dichos bienes.
+En los convenios de incentivos que celebre la Secretaría con esas empresas, se fijará una cláusula en la cual, como contraprestación a los apoyos o incentivos recibidos, la empresa se comprometa a considerar en primera instancia una parte de su presupuesto para la adquisición de productos estatales, maquinaria, equipo u otros insumos fabricados en el Estado, participando, en igualdad de circunstancias con los bienes o servicios procedentes de otras partes del país o del extranjero, siempre y cuando cubran las especificaciones que requieran.
