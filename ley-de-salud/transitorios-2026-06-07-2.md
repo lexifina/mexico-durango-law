@@ -1,0 +1,6 @@
+P.O. 7 DE JUNIO DE 2026.
+[N. DE E. TRANSITORIOS DEL "DECRETO 407 POR EL QUE SE REFORMAN Y ADICIONAN DIVERSAS DISPOSICIONES DE LA LEY DE SALUD DEL ESTADO DE DURANGO, EN MATERIA DE VACUNA CONTRA EL VIRUS DEL PAPILOMA HUMANO (VPH)".]
+PRIMERO. El presente Decreto entrará en vigor al día siguiente de su publicación en el Periódico Oficial del Gobierno del Estado de Durango.
+SEGUNDO. La Secretaría de Salud del Estado deberá emitir o adecuar, en un plazo no mayor de noventa días naturales contados a partir de la entrada en vigor del presente Decreto, los lineamientos, criterios operativos y mecanismos de coordinación necesarios para su cumplimiento, de conformidad con los lineamientos del Sistema Nacional de Salud, la disponibilidad presupuestaria y la disponibilidad de vacunas e insumos indispensables para su aplicación.
+TERCERO. Las erogaciones que, en su caso, se generen con motivo de la entrada en vigor del presente Decreto, se cubrirán con cargo al presupuesto aprobado a las dependencias y entidades competentes para el ejercicio fiscal correspondiente, por lo que no se autorizarán ampliaciones presupuestales adicionales para tales efectos.
+CUARTO. Se derogan todas las disposiciones que se opongan al presente Decreto.
