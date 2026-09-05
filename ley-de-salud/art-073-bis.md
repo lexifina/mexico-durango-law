@@ -1,0 +1,4 @@
+(ADICIONADO, P.O. 7 DE JUNIO DE 2026)
+ARTÍCULO 73 BIS. Tratándose de urgencias médicas, los servicios públicos de salud a cargo de la Secretaría y del Organismo deberán brindar la atención que corresponda de manera inmediata y oportuna, conforme a la capacidad resolutiva del establecimiento y a las disposiciones jurídicas aplicables, procurando la estabilización de la persona usuaria y, en su caso, su referencia o remisión a la institución que corresponda.
+La atención de urgencia no podrá condicionarse a la acreditación de afiliación a institución de seguridad social, cobertura médica privada, autorización de aseguradora o institución alguna, garantía de pago o cualquier otro trámite administrativo previo.
+Una vez atendida la urgencia o estabilizada la persona usuaria, podrán realizarse las gestiones administrativas que resulten procedentes conforme a la legislación aplicable, sin que ello afecte la continuidad, oportunidad o calidad de la atención médica.

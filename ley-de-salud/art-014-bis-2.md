@@ -1,5 +1,5 @@
 (REFORMADO, P.O. 25 DE DICIEMBRE DE 2025)
-Artículo 14 BIS 2.- El Consejo Estatal de Salud se integrará de la siguiente manera:
+ARTÍCULO 14 BIS 2.- El Consejo Estatal de Salud se integrará de la siguiente manera:
 I. La Presidencia, a cargo de la persona titular del Poder Ejecutivo del Estado;
 II. La Vicepresidencia, a cargo de la persona Titular de la Secretaría de Salud;
 III. La Secretaría Ejecutiva, que será designada por la Presidencia a propuesta de la Vicepresidencia;
