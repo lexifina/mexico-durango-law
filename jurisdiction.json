@@ -1,0 +1,11 @@
+{
+  "path": "mx-dur",
+  "code": "MX-DUR",
+  "name": "Durango",
+  "level": "state",
+  "parent": "mx",
+  "repo": "https://github.com/lexifina/mexico-durango-law",
+  "build": "built: constitution, codes and laws (128 ordenamientos, 1239 versions) from SCJN Legislación",
+  "language": "es",
+  "sources": 1
+}
